@@ -3,7 +3,7 @@
 <br/>
 <br/>
 
-<p align="center"><img align="center" src="http://economiadelacomplejidadrepensarlateoriaeconomica.jeshuanomics.com/images/Repensar_el_sistema_economico.png" width="30%" height="30%"></p>
+<p align="center"><img align="center" src="https://github.com/Jeshua-Romero-Guadarrama/Economia_de_la_complejidad_repensar_la_teoria_economica/blob/main/docs/images/Economia_de_la_complejidad_repensar_la_teoria_economica.png" width="30%" height="30%"></p>
 
 <br/>
 <br/>
