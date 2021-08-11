@@ -1,0 +1,661 @@
+
+
+
+
+- Álvarez, María. 2010. Tipos de razones: un ensayo sobre la filosofía de la acción . Oxford: Prensa de la Universidad de Oxford.
+- Anscombe, GEM 1959. Intención . Oxford: Basil Blackwell.
+- Anscombe, GEM 1971. Causalidad y determinación . Londres: Cambridge University Press.
+- Archer, M., R. Bhaskar, A. Collier, T. Lawson y A. Norrie. 1998. Realismo crítico: lecturas esenciales . Londres: Routledge.
+- Aristóteles, Física, Libro II, Capítulos IV y V.
+- Atherton, Margaret, ed. 1994. Mujeres filósofas del período moderno temprano . Indianápolis: Hackett Publishing Company.
+- Ayer, Alfred J. 1954. Libertad y necesidad. En sus ensayos filosóficos . Nueva York: St Martin's Press.
+- Backhouse, RE 1997. Verdad y progreso en el conocimiento económico . Cheltenham: Edward lgar.
+- Bateson, Gregory. 1973. Pasos hacia una ecología de la mente . Londres: Paladin.
+- Baumeister, Roy F., EJ Masicampo y Kathleen D. Vohs. 2011. ¿Los pensamientos conscientes causan comportamiento? Revisión anual de psicología 62 (1): 331–361.
+- Berkeley, George. 1710, 1982. Winkler (ed.). Tratado sobre los principios del conocimiento humano . Indianápolis: Hackett Publishing.
+- Berofsky, Bernard. 2002. Ifs, latas y libre albedrío: los problemas. En The Oxford Handbook of Free Will , ed. Robert Kane. Oxford: Prensa de la Universidad de Oxford.
+- Bhaskar, R. 1978. Una teoría realista de la ciencia . Hemel Hempstead: Cosechadora.
+- Bhaskar, R. 1979. La posibilidad del naturalismo . Hemel Hempstead: Cosechadora.
+- Block, Ned y Jerry A. Fodor. 1972. Lo que no son los estados psicológicos. Revisión filosófica 81: 159- 181.
+- Block, Ned. 1990. Tierra invertida. Perspectivas filosóficas 4: 53–79.
+- Block, Ned. 1995. Sobre una confusión sobre una función de la conciencia. Ciencias del comportamiento y el cerebro 18 (2): 227–247.
+- Block, Ned. 1996. Pintura mental y látex mental. En Villanueva, ed. Percepción . Atascadero: Ridgeview.
+- Bourdieu, Pierre. 1977. Esquema de una teoría de la práctica . Cambridge: Cambridge University Press.
+- Bourdieu, Pierre. 1990 [1980]. La lógica de la práctica. Trans. Richard Nice. Cambridge: Polity Press.
+- Burridge, Kenelm. 1979. Alguien, nadie: un ensayo sobre la individualidad . Princeton: Prensa de la Universidad de Princeton.
+- Cartwright, N. 1992. Naturalezas aristotélicas y método experimental moderno. En Inferencia, explicación y otras frustraciones: ensayos en la filosofía de la ciencia , ed. J. Earman. Berkeley: Prensa de la Universidad de California.
+- Cavendish, Margaret. 1664, 2017. Cartas filosóficas o modestas reflexiones sobre algunas opiniones en filosofía natural . Charleston: Plataforma de publicación independiente CreateSpace.
+- Clough, Paul. 2014. Moralidad y crecimiento económico en las zonas rurales de África occidental: acumulación indígena en Hausaland . Nueva York / Oxford: Berghahn Books.
+- Clough, Paul. 2016. Tensión, reflexión y agencia en la vida de un comerciante de granos Hausa. En Reflexionando sobre la reflexividad: la condición humana como sorpresa ontológica , ed. T. Evens, D. Handelman y C. Roberts. Nueva York / Oxford: Berghahn Books.
+- Collier, A. 1994. Realismo crítico: una introducción a la filosofía de Roy Bhaskar . Londres: Verso.
+- Collier, A. 2011. La ontología social del realismo crítico. En Sociological Realism , ed. A. Maccarini, E. Morandi y Riccardo Prandini. Londres: Routledge.
+- Collingwood, RG 1938. Sobre la llamada idea de causalidad. Actas de la Sociedad Aristotélica (Nueva Serie) 38: 85- 112.
+- Collingwood, RG. 1940. Ensayo en metafísica . Oxford: Prensa de la Universidad de Oxford.
+- Dancy, Jonathan. 2000. Realidad práctica . Oxford: Prensa de la Universidad de Oxford.
+- Davidson, D. 1970. Mental Events. dada por primera vez como una conferencia en la universidad de Massachusetts, publicada en Experience and Theory, ed. L. Foster y JW Swanson. The University of Massachusetts Press y Duckworth, reimpreso en Davidson, D. (2013) Essays on Actions and Events, Oxford University Press; también reimpreso en Sosa, E. y Tooley, M. (1993) Causation, Oxford University Press.
+- Davidson, D. 1993. Causas y condiciones. Journal of Philosophy 64 (1967): 691–703.
+- Davidson, Donald 1963. Actions, Reasons and Causes, en Davidson 1980.
+- Davidson, Donald 1970. Mental Events, en Davidson 1980.
+- Davidson, Donald 1973. The Material Mind, en Davidson 1980.
+- Davidson, Donald 1974. La psicología como filosofía, en Davidson 1980.
+- Davidson, Donald. 1970. Acontecimientos mentales. En Experiencia y Teoría , ed. Foster y Swanson. Amherst: Prensa de la Universidad de Massachusetts.
+- Davidson, Donald. 1980. Ensayos sobre acciones y eventos . Oxford: Prensa de la Universidad de Oxford.
+- Dworkin, Gerald. 1970. Actuar libremente. Noûs 4 (4): 367–383.
+- Ekstrom, Laura. 2003. Libre albedrío, azar y misterio. Estudios filosóficos 2 (1): 153–180.
+- Elzein, Nadine. 2017. Contraejemplos al estilo de Frankfurt y la importancia de las posibilidades alternativas. Acta Analytica 32: 169–191.
+- Evens, TMS 2008. Antropología como ética: no dualismo y la conducta del sacrificio. Nueva York / Oxford: Berghahn Books.
+- Faulkner, P., S. Pratten y J. Runde. 2017. Cambridge Social Ontology: Clarification, Development and Deployment. Cambridge Journal of Economics 41 (5): 1265- 1277.
+- Fischer, John Martin y Mark Ravizza. 1998. Responsabilidad y Control . Cambridge: Cambridge University Press.
+- Fodor, Jerry A. 1974. Ciencias especiales: o la desunión de la ciencia como hipótesis de trabajo. Synthese 28: 97- 115.
+- Frankfurt, Harry G. 1969. Posibilidades alternativas y responsabilidad moral. The Journal of Philosophy 66 (23): 829–839.
+- Frankfurt, Harry G. 1971. Libertad de voluntad y concepto de Persona. The Journal of Philosophy 68 (1): 5- 20.
+- Franklin, Christopher E. 2018. Un libertarismo minimalista: el libre albedrío y la promesa de reducción . Nueva York: Oxford University Press.
+- Friedman, M. 1953. La metodología de la economía positiva. En Ensayos en economía positiva, ed. M. Friedman, 3- 43. Chicago: Prensa de la Universidad de Chicago.
+- Gallagher, Shaun. 2006. ¿Dónde está la acción? Epifenomenalismo y el problema del libre albedrío. En Pockett, Banks y Gallagher (eds.) ¿La conciencia causa comportamiento? , Cambridge, MA: MIT Press.
+- Gasking, D. Causalidad y recetas, 64, Mente .
+- Ginet, Carl. 2002. Razones explicaciones de la acción: relatos causalistas versus no causalistas. En el manual de Oxford del libre albedrío . Kane (ed.) Nueva York: Oxford University Press.
+- Ginet, Carl. 2007. Una acción puede no estar causada y depender del agente. En Intencionalidad, deliberación y autonomía: la base teórica de la acción de la filosofía práctica , ed. Lumer y Nannini. Aldershot: Ashgate.
+- Ginet, Carl. 2008. En defensa de una explicación no causal de razones explicaciones. The Journal of Ethics 12: 229- 237.
+- Ginet, Carl. 2016. Explicación de las razones: Mayor defensa de una explicación no causal. The Journal of Ethics 20: 219- 228.
+- Goetz, Stewart. 1988. Una teoría no causal de la agencia. Filosofía e investigación fenomenológica 49: 303–316.
+- Goetz, Stewart. 2008. Libertad, teleología y maldad . Londres: Continuum.
+- Goodman, N. 1983. Fact, Fiction and Forecast . Cambridge: Prensa de la Universidad de Harvard.
+- Graeber, David. 2011. Deuda: los primeros 5.000 años . Booklyn / Londres: Melville House.
+- Groff, R. de próxima publicación. Sustituyendo la problemática del libre albedrío: poderes, agencia y determinación casual. Síntesis .
+- Harré, R. y EH Madden. 1975. Causal Powers . Oxford: Basil Blackwell.
+- Harré, R. y EH Madden. 1975. Poderes causales: una teoría de la necesidad natural . Oxford: Blackwell.
+- Hart, HLA y AM Honoré. 1959. La causalidad y la ley . Oxford: The Clarendon Press.
+- Hendry, DF, EE Leamer y DJ Poirier. 1990. El diálogo ET: una conversación sobre metodología econométrica. Teoría econométrica 6 (2): 171–261.
+- Herrería, Declan. 2012. La vida mental de los zombies. Perspectivas filosóficas 26: 343–372.
+- Hicks, J. 1979. Causality in Economics . Oxford: Basil Blackwell.
+- Hobbes, Thomas. 1651, 1994. Leviathan. En Leviatán, con variantes seleccionadas de la edición latina de 1668 , ed. Curley. Indianápolis: Hackett.
+- Hodgson, Shadworth H. 1880. La teoría de la práctica: una investigación ética en dos libros . Londres: Longmans, Green, Reader y Dyer.
+- Honderich, Ted. 1982. El argumento a favor del monismo anómalo. Análisis 42: 59–64.
+- Hornsby, Jennifer. 1980–81. ¿Qué eventos físicos son eventos mentales? Actas de la Sociedad Aristotélica, 81: 73–92.
+- Hume, D. 1790. Tratado de la naturaleza humana (Índice analítico de LA Selby- Bigge); Segunda edición con texto revisado y notas de PH Nidditch (1978) Oxford University Press.
+- Hyman, J. 2015. Acción, conocimiento y voluntad . Oxford: Prensa de la Universidad de Oxford.
+- Illari, P. y F. Russo. 2014. Causalidad . Oxford: Prensa de la Universidad de Oxford.
+- Jackson, Frank. 1982. Epiphenomenal qualia. The Philosophical Quarterly 32: 127- 136.
+- Jackson, Frank. 1986. Lo que Mary no sabía. Journal of Philosophy 83: 291- 295.
+- Kane, Robert. 2000. La doble regresión del libre albedrío y el papel de las posibilidades alternativas. Perspectivas filosóficas 14: 57–79.
+- Kane, Robert. 2002. Algunos caminos olvidados en el laberinto del libre albedrío. En el manual de Oxford del libre albedrío , ed. Kane. Nueva York: Oxford University Press.
+- Kane, Robert. 2004. Agencia, responsabilidad e indeterminismo: reflexiones sobre las teorías libertarias del libre albedrío. En Freedom and Determinism , ed. O'Rourke Campbell y Shier. Cambridge, MA: MIT Press.
+- Keynes, JM 1971–1989. Los escritos recopilados de John Maynard Keynes . Macmillan / Cambridge University Press para la Royal Economic Society.
+- Kim, Jaegwon. 1989. Mecanismo, finalidad y exclusión explicativa. Perspectivas filosóficas 3: 77–108.
+- Kim, Jaegwon. 1993. Los problemas del no reduccionista con la causalidad mental. En Mental Causation , ed. Heil y Mele. Oxford: Clarendon Press.
+- Kim, Jaegwon. 1998. Mente en un mundo físico . Cambridge, MA: MIT Press.
+- Kim, Jaegwon. 2005. Physicalism, or Something Near Enough . Princeton: Prensa de la Universidad de Princeton.
+- Kittle, Simon. 2018. ¿Cuándo es robusta una posibilidad alternativa? Revista europea de filosofía : 1–12.
+- Kuorokoski, J. y C. Marchionni. (eds.). 2014. Filosofía de la economía. En The Bloomsbury Companion to the Philosophy of Science , ed. S. French y E. Saatrsi. Londres: Bloomsbury.
+- Lawson, T. 1994. Realismo crítico y análisis de elección, explicación y cambio. Advances in Austrian Economics 1 (1): 3–30.
+- Lawson, T. 1997. Economía y realidad . Londres: Routledge.
+- Lawson, T. 2003. Reorienting Economics . Londres: Routledge.
+- Lawson, T. 2013. Emergencia y causalidad social. En Powers and Capacities in Philosophy: The New Aristotelianism , ed. R. Groff y J. Creco. Londres: Routledge.
+- Lawson, T. 2014. ¿Aceleración del ritmo de cambio social? tecnología, resistencia, globalización y buena sociedad. En Modernidad tardía: trayectorias hacia la sociedad morfogénica , ed. MS Archer. Nueva York: Springer.
+- Lawson, T. 2015a. Naturalismo ético crítico: una orientación a la ética. En Ontología social y economía moderna , ed. S. Pratten. Londres: Routledge.
+- Lawson, T. 2015b. Ensayos sobre la naturaleza y el estado de la economía moderna . Londres: Routledge.
+- Leibniz, Gottfried W. 1695, 1989. Un nuevo sistema de la naturaleza. En Ensayos filosóficos , ed. Ariew Garber. Indianápolis: Hackett Publishing.
+- Levy, Neil y Tim Bayne. 2004. Hacer sin deliberación: Automatismo, automaticidad y responsabilidad moral. Revista Internacional de Psiquiatría 16 (3): 209–215.
+- Levy, Neil. 2011. Expresar quiénes somos: responsabilidad moral y conciencia de nuestros motivos de actuación. Filosofía analítica 51: 243- 261.
+- Levy, Neil. 2013. La importancia de la conciencia. Revista Australasia de Filosofía 91 (2): 211- 229.
+- Levy, Neil. 2014a. Conciencia y responsabilidad moral . Nueva York: Oxford University Press.
+- Levy, Neil. 2014b. Conciencia, actitudes implícitas y responsabilidad moral. Noûs 48: 21–40.
+- Lewis, David. 1981. ¿Somos libres de infringir las leyes? Theoria 47: 113- 121.
+- Libet, Benjamin. 1982. Estimulación cerebral en el estudio de las funciones neuronales para la experiencia sensorial consciente. Neurobiología humana 1: 235–242.
+- Libet, Benjamin. 1985. Iniciativa cerebral inconsciente y papel de la voluntad consciente en el inicio de la acción. Ciencias del comportamiento y el cerebro 8: 529–566.
+- Libet, Benjamin. 2003. ¿Puede la experiencia consciente afectar la actividad cerebral? Revista de estudios de la conciencia 10 (12): 24- 28.
+- Libet, Benjamin., Elwood W. Wright Jr, Bertram Feinstein y Dennis K. Pearl. 1979. Remisión subjetiva del tiempo para una experiencia sensorial consciente: un papel funcional para el sistema de proyección somatosensorial específico en el hombre. Brain 102: 193- 224.
+- Mackie, JL 1965. Causa y condiciones. Americal Philosophical Quarterly 2/4 (octubre): 244- 255.
+- Mäki, U. 1992. Sobre el método de aislamiento en Economía. En Inteligibilidad en la ciencia , ed. C. Dilworth, 319–354. Atalanta / Amsterdam: Rodopi.
+- Malcolm, Norman. 1968. La concebibilidad del mecanismo. Revisión filosófica 77: 45–72.
+- Malebranche, Nicolás. 1674, 1997. La búsqueda de la verdad ed. Lennon y Olscamp. Cambridge: Cambridge University Press.
+- Malinowski, Bonislaw. 1922. Argonautas del Pacífico Occidental . Prospect Heights: Waveland Press.
+- Maoz, Uri, Gideon Yaffe, Christof Koch y Liad Mudrik. próximo. Precursores neuronales de decisiones que importan: un estudio ERP de elección deliberada y arbitraria. BioRxiv 097626. https://doi.org/10.1101/097626 . 
+- Marmodoro, A. 2014. Aristóteles sobre la percepción de objetos . Oxford: Prensa de la Universidad de Oxford.
+- McCann, Hugh J. 1998. Las obras de la agencia: sobre la acción humana, la voluntad y la libertad . Ithaca: Cornell University Press.
+- McCann, Hugh J. 2012. Toma de decisiones. Temas filosóficos 22: 246–263.
+- McLaughlin, Brian. 2013. Por qué la racionalización no es una especie de explicación causal. En Razones y causas: causalismo y anticausalismo en la filosofía de la acción , ed. G. D'Oro y C. Sandis, 2013. Houndmills: Palgrave Macmillan.
+- Melden, AI 1961. Acción libre . Londres: Routledge y Kegan Paul.
+- Moore, George E. 1903. Principia Ethica . Cambridge: Cambridge University Press.
+- Morgan, M. 2012. El mundo en el modelo . Cambridge: Cambridge University Press.
+- Moya, Carlos. 2006. Responsabilidad moral: los caminos del escepticismo . Nueva York: Routledge.
+- Moya, Carlos. 2007. ¿Responsabilidad moral sin posibilidades alternativas? The Journal of Philosophy 104: 475–486.
+- Moya, Carlos. 2011. Sobre la idea misma de una alternativa robusta. Critica 43 (128): 3–26.
+- Nagel, Thomas. 1974. ¿Qué se siente al ser un murciélago? Philosophical Review 83: 435–456.
+- Nahmias, Eddy. 2010. Desafíos científicos al libre albedrío. En A Companion to the Philosophy of Action , ed. O'Connor y Sandis. Nueva York: Wiley – Blackwell.
+- Narotzky, Susana. 1997. Nuevas direcciones en antropología económica . Londres / Chicago: Pluto Press.
+- Newman, P. 2003. Psíquicos matemáticos y Firther Papers on Political Economy de FY Edgeworth . Oxford: Prensa de la Universidad de Oxford.
+- O'Connor, Timothy. Y John R. Churchill. 2010. ¿Es viable el fisicalismo no reduccionista dentro de una metafísica de poderes causales? En Emergence in Mind , ed. Macdonald y Macdonald. Oxford: Prensa de la Universidad de Oxford.
+- Parry, J. y M. Bloch. 1989. Money and the Morality of Exchange . Cambridge: Cambridge University Press.
+- Pastor, Joshua. 2015a. Conciencia, libre albedrío y responsabilidad moral: tomar a la gente en serio. Psicología filosófica 28 (7): 929–946.
+- Pastor, Joshua. 2015b. Control consciente sobre la acción. Mente y lenguaje 30 (3): 320–344.
+- Peacocke, Christopher. 1983. Sentido y contenido . Oxford: Prensa de la Universidad de Oxford.
+- Pereboom, Derk. 2000. Posibilidades alternativas e historias causales. Perspectivas filosóficas 14: 119- 137.
+- Pereboom, Derk. 2001. Vivir sin libre albedrío . Prensa de la Universidad de Cambridge.
+- Pereboom, Derk. 2003. Incompatibilismo de fuentes y posibilidades alternativas. En Responsabilidad moral y posibilidades alternativas: ensayos sobre la importancia de las posibilidades alternativas , ed. Widerker y McKenna. Aldershot: Ashgate.
+- Popper, K. 1990. Un mundo de propensiones . Bristol: Thoemmes Antiquarian Books, Ltd.
+- Pratten, S., ed. 2015. Ontología social y economía moderna . Londres: Routledge.
+- Pratten. 2005. La economía como progreso: el enfoque de la LSE para la modelización econométrica y el realismo crítico como programas de investigación. Cambridge Journal of Economics 29: 179- 205.
+- Pronto, Chun Siong, Marcel Brass, Hans- Jochen Heinze y John- Dylan Haynes. 2008. Determinantes inconscientes de decisiones libres en el cerebro humano. Nature Neuroscience 11: 543–545.
+- Putnam, H. 2004. Ética sin ontología . Cambridge: Prensa de la Universidad de Harvard.
+- Putnam, Hilary. 1967. Predicados psicológicos. En Arte, mente y religión , ed. Capitán y Merrill. Pittsburgh: Prensa de la Universidad de Pittsburgh.
+- Pylyshyn, Zenon. 1984. Computación y cognición . Cambridge, MA: MIT Press.
+- Rapport, Nigel y Joanna Overing. 2007. Antropología social y cultural: los conceptos clave . Londres / Nueva York: Routledge.
+- Reder, M. 1982. Economía de Chicago: permanencia y cambio. Revista de literatura económica 35: 1–38.
+- Reeves, C. 2016a. Más allá del giro posmetafísico: ética y metafísica en la teoría crítica. Revista de realismo crítico 15 (3): 217–244.
+- Reeves, C. 2016b. Adorno, Libertad y derecho penal: el desafío 'determinista' revisado. Law and Critique 27 (3): 323–348.
+- Róna, P. 2017. Ética, economía y la corporación. En Economía como ciencia moral, ed. P. Róna y L. Zsolnai. Nueva York: Springer.
+- Rosenberg, A. 1992. Economía - Política matemática o ciencia de rendimientos decrecientes . Chicago: Prensa de la Universidad de Chicago.
+- Russell, B. 2012. Sobre la noción de causa. En Proceedings of the Aristotelian Society , vol. 13, 1–26.
+- Ryle, G. 1949. El concepto de mente . Londres: Hutchinson.
+- Ryle, Gilbert. 1949. El concepto de mente . Londres: Hutchinson.
+- Sargent, TJ y N. Wallace. 1976. Expectativas racionales y teoría de la política económica. Revista de economía monetaria 2.
+- Schlosser, Marcus E. 2013. Voluntad consciente, capacidad de respuesta a la razón y responsabilidad moral. The Journal of Ethics 17: 205- 232.
+- Searle, JR 1983. Intencionalidad . Nueva York: Cambridge University Press
+- Setiya, Kieran. 2009. Razones y causas. Revista europea de filosofía 19: 129- 157.
+- Shabo, Seth. 2010. Incompatibilidad de fuentes inflexible. Filosofía e investigación fenomenológica 80 (2): 349–383.
+- Shackle, GLS 1961. Decisión, orden y tiempo en asuntos humanos . Cambridge: Cambridge University Press.
+- Smart, John JC 1961. Libre albedrío, alabanza y culpa. Mente 70: 291- 306.
+- Sosa, Ernesto. 1984. Interacción mente- cuerpo y causalidad superveniente. Estudios del Medio Oeste en Filosofía 9: 271- 281.
+- Steward, H. 2012. Una metafísica para la libertad . Oxford: Prensa de la Universidad de Oxford.
+- Stoutland, Frederick. 1980. Causalidad oblicua y motivos de acción. Synthese 43: 351–367.
+- Stump, Eleanor. 1999a. Posibilidades alternativas y responsabilidad moral: El destello de la libertad. The Journal of Ethics 3 (4): 299–324.
+- Stump, Eleanor. 1999b. Polvo, determinismo y Frankfurt: una respuesta a Goetz. Fe y filosofía 16 (3): 413–422.
+- Stump, Eleanor. 2003. Responsabilidad moral sin posibilidades alternativas. En Responsabilidad moral y posibilidades alternativas: ensayos sobre la importancia de las posibilidades alternativas , ed. Widerker y McKenna. Aldershot: Ashgate.
+- Tanney, Julia. 2009. Razones como explicaciones no causales que ubican el contexto. En Reglas, razón y autoconocimiento , ed. J. Tanney, 2013. Cambridge, MA: Harvard University Press.
+- Thompson, M. 2012. Vida y acción: estructuras elementales de práctica y pensamiento práctico . Cambridge: Prensa de la Universidad de Harvard.
+- Timpe, Kevin. 2007. Incompatibilismo de fuentes y sus alternativas. American Philosophical Quarterly 44 (2): 143- 155.
+- Timpe, Kevin. 2008. Libre albedrío: Sourcehood y sus alternativas . Nueva York: Continuum.
+- Veblen, TB 1919. El lugar de la ciencia en la civilización moderna y otros ensayos , reimpreso con una nueva introducción de WJ Samuels. Nuevo Brunswick: Transacción (1990).
+- von Mises, L. 2006. La base fundamental de la ciencia económica; un ensayo sobre el método . Indianápolis: Liberty Fund.
+- Von Wright, G. 1975. Causalidad y determinismo . Nueva York: Columbia University Press.
+- Waller, Robyn. 2012. Más allá de las pulsaciones de botones: la neurociencia de las acciones libres y moralmente evaluables. The Monist 95 (3): 441–462.
+- Walras, L. 1874. Élements d'Economie Pure , Cobran 1313 Cie, Lausanne, traducido por William Jaffé (1954) de la edición definitiva de 1926. Londres: George Allen y Unwin Ltd.
+- Walter, Sven. 2014. Willusionismo, epifenomenalismo y sentimiento de voluntad consciente. Synthese 191: 2215–2238.
+- Watson, Gary. 1975. Agencia libre. The Journal of Philosophy 72 (8): 205–220.
+- Wegner, Daniel M. 2002. La ilusión de la voluntad consciente . Cambridge, MA: MIT Press.
+- Wegner, Daniel M. 2004. Resumen de La ilusión de la voluntad consciente . Ciencias del comportamiento y el cerebro 27: 649–659.
+- Widerker, David. 2006. El libertarianismo y el significado filosófico de los escenarios de Frankfurt. The Journal of Philosophy 103 (4): 163- 187.
+- Widerker, David. 2009. Una defensa del libertarianismo favorable a Frankfurt. Exploraciones filosóficas 12 (2): 87- 108.
+- Wigner, E. 1960. La eficiencia irrazonable de las matemáticas en las ciencias naturales. Comunicaciones en matemáticas puras y aplicadas 13: 1–14.
+- Wilson, George. 1985. Davidson sobre la acción intencional. En Acciones y eventos: perspectivas sobre la filosofía de Donald Davidson , ed. E. LePore y B. McLaughlin. Oxford: Basil Blackwell.
+- Wolf, Susan. 1990. Libertad dentro de la razón . Oxford: Prensa de la Universidad de Oxford.
+- Zagzebski, Linda. 2000. ¿Requiere la libertad libertaria posibilidades alternativas? Noûs 34: 231–248.
+- Zagzebski, Linda. 2010. Presciencia y libertad humana. En A companion to Philosophy of Religion , ed. Draper Taliaferro y Quinn. Chichester: Wiley- Blackwell.
+
+- Ackley, D. y Littman, M. 1992. Interacciones entre aprendizaje y evolución. En la vida artificial II. sl, ed. CG Langton, C. Taylor, JD Farmer y S. Rasmussen, 487–509. Redwood City: Addison- Wesley.
+- Adami, C. y A. Hintze. 2013. La inestabilidad evolutiva de las estrategias de determinante cero demuestra que ganar no lo es todo . Comunicaciones de la naturaleza . https://www.nature.com/articles/ncomms3193.pdf . Consultado el 22 de diciembre de 2017.
+- Akerlof, G. y R. Kranton. 2000. Economía e identidad. Revista trimestral de economía CXV: 715–753.
+- Akerlof, G. y R. Kranton. 2002. Identidad y escolaridad: algunas lecciones para la economía de la educación. Revista de literatura económica XL: 1167–1201.
+- Akerlof, G. y R. Kranton. 2005. Identidad y economía de las organizaciones. Journal of Economic Perspectives 19: 9–32.
+- Akerlof, G. y R. Kranton. 2010. Economía de la identidad: cómo nuestras identidades dan forma a nuestro trabajo, salarios y bienestar . Princeton: Prensa de la Universidad de Princeton.
+- Akerlof, GA y RJ Shiller. 2009. Espíritus animales . Princeton / Oxford: Prensa de la Universidad de Princeton.
+- Alger, I. y JW Weibull. 2013. Homo moralis - Evolución de las preferencias bajo información incompleta y emparejamiento selectivo. Econometrica 81 (6). https://www.tse- fr.eu/sites/default/files/medias/stories/sem_12_13/eco_theo/weibull.pdf . Consultado el 9 de octubre de 2017.
+- Alkire, S. y R. Black. 1997. Una teoría del razonamiento práctico de la ética del desarrollo: Fomento del enfoque de capacidades. Journal of International Development 9: 263–279.
+- Almeder, R. 2014. Pragmatismo y ciencia. En El compañero de Routledge a la filosofía de la ciencia , ed. S. Psillos y M. Curd, 103- 111. Oxon: Routledge.
+- Anderson, E. 1993. Valores en ética y economía . Cambridge, MA: Harvard University Press.
+- Anderson, E. 2000. Más allá del homo economicus: Nuevos desarrollos en las teorías de las normas sociales. Filosofía y asuntos públicos 29 (2): 170–200.
+- Anscombe, EGM 1957. Intention . Oxford: Basil Blackwell.
+- Aristóteles. 1980. Ética de Nichomachean . Trans. D. Ross, Rev. JL Ackrill y JO Urmson. Oxford: Prensa de la Universidad de Oxford.
+- Aristóteles. 1988. Politics, ed. S. Everson. Cambridge: Cambridge University Press.
+- Aristóteles. 2016. Metafísica . Cambridge: Hackett Publishing Company.
+- Arnsperger, Ch. Y V. Yannis. 2008. Economía neoclásica. Tres rasgos identificativos. En Economía pluralista , ed. Edward Fullbrook, 13- 25. Londres / Nueva York: Zed Books.
+- Arrow, KJ 1995. Opinión sobre el futuro de la ciencia. Ciencia . Número publicado el 17/03/1995.
+- Atkins, P. 1994. La creación revisitada . Harmondsworth: pingüino.
+- Axelrod, R. 1984. La evolución de la cooperación . Nueva York: Basic Books.
+- Axelrod, R. y W. Hamilton. 1981. La evolución de la cooperación. Science 211 (4489): 1390- 1396.
+- Babbage, C. 1830. Reflexiones sobre el declive de la ciencia en Inglaterra y sobre algunas de sus causas . Londres: B. Fellowes, etc.
+- Baker, LR 2015. Personas desinteresadas: ¿bondad en un mundo impersonal? Real Instituto de Filosofía Suplemento 76: 143- 159.
+- Baldwin, JM 1896. Un nuevo factor de evolución. American Naturalist 30 (441–451): 536–553.
+- Baritz, L. 2014. Háromdimenziós gazdaság - Lehet- e gazdálkodni erényetikai paradigmában? (Economía tridimensional - ¿Es posible hacer negocios en el paradigma de la virtud?) . Tesis doctoral, Universidad Corvinus de Budapest, programa de doctorado.
+- Baumol, W. 1993. Emprendimiento, gestión y estructura de pagos . Cambridge, MA: MIT Press.
+- Becker, G. 1976. El enfoque económico del comportamiento humano . Chicago / Londres: University of Chicago Press.
+- Becker, GS 1974. Una teoría de las interacciones sociales. The Journal of Political Economy 82 (6): 1063–1093.
+- Becker, GS 1993. Capital humano: Un análisis teórico y empírico, con especial referencia a la educación . Nueva York: Columbia University Press.
+- Beckert, J. 2003. Sociología económica e incrustación. ¿Cómo conceptualizaremos la acción económica? Journal of Economic Issues 37 (3): 768–787.
+- Bell, D. e I. Kristol. 1981. La crisis de la teoría económica . Nueva York: Basic Books.
+- Bentham, J. 1907. Una introducción a los principios de la moral y la legislación: Biblioteca de economía y libertad . https://www.econlib.org/library/Bentham/bnthPML.html . Consultado el 24 de enero de 2020.
+- Bergson, H. 1910. Tiempo y libre albedrío . Trans. FL Pogson. Prensa de Humanidades.
+- Berlín, I. 2002. Dos conceptos de libertad. En Liberty , ed. H. Hardy, 166- 217. Oxford: Prensa de la Universidad de Oxford.
+- Bernanke, B. 2010. Implicaciones de la crisis financiera para la economía. Discurso pronunciado en la Universidad de Princeton. Revista BIS 123.
+- Bernstein, RJ 1999. Praxis y acción. Filosofías contemporáneas de la actividad humana . Filadelfia: Prensa de la Universidad de Pensilvania.
+- Beutel, FK 1957. Algunas potencialidades de la jurisprudencia experimental como nueva rama de las ciencias sociales . Lincoln: Prensa de la Universidad de Nebrasca.
+- Binswanger, Harry. 1981. The Possible Dream. El Foro Objetivista 2 (1 y 2).
+- Blakely, J. 2016. Alasdair MacIntyre, Charles Taylor y la desaparición del naturalismo. Reunificación de la teoría política y las ciencias sociales . Notre Dame: Prensa de la Universidad de Notre Dame.
+- Blaug, M. 1980 [1987]. La metodología de la economía: cómo explican los economistas . Cambridge: Cambridge University Press.
+- Block, F. 2018. Capitalismo. El futuro de una ilusión . Oakland: Prensa de la Universidad de California.
+- Bohman, J. 2002. Cómo hacer que una ciencia social sea práctica: pragmatismo, ciencia social crítica y teoría multperspectiva. Millennium: Journal of International Studies 31 (2): 499–524.
+- Bohman, J. 2003. La teoría crítica como conocimiento práctico: participantes, observadores y críticos. En La guía de Blackwell para la filosofía de las ciencias sociales , ed. Stephen Turner y Paul Roth. Londres: Blackwell Press.
+- Boumans, M. y JB Davis. 2010. Metodología económica: Entender la economía como ciencia . Nueva York: Palgrave.
+- Brillouin, L. 1964. Incertidumbre científica e información . Nueva York: Académico.
+- Broom, J. 1999. Ética fuera de la economía . Cambridge: Cambridge University Press.
+- Brown, V. 1994. Discurso de Adam Smith: canonicidad, comercio y conciencia . Londres / Nueva York: Routledge.
+- Brożek, B. 2013. Błąd naturalistyczny z perspektywy logicznej. En Fenomen normatywności , ed. B. Brożek, A. Brożek, J. Stelmach. 179- 194. Cracovia: Copernicus Center Press.
+- Brożek, B. 2016. Imitación y aparición de órdenes normativos. En La emergencia del orden normativo , ed. J. Stelmach, B. Brożek y Ł. Kurek, edición Kindle. Cracovia: Copernicus Center Press.
+- Brzozowski, P. 1988. Przekazywanie wartości w rodzinie. Psychologia Wychowawcza 2: 190- 199.
+- Bunge, M. 1999. Diccionario de filosofía . Amherst: Prometheus Books.
+- Burnyeat, MF 1980. Aristóteles sobre aprender a ser bueno. En Ensayos sobre la ética de Aristóteles , Amélie Oksenberg Rorty, 69–92. Prensa de la Universidad de California.
+- Buttiglione, R. 1997. Karol Wojtyla. El pensamiento del hombre que se convirtió en el Papa Juan Pablo II . Cambridge: William B. Eerdmans Publ. Co.
+- Cartwright, N. 1989. Capacidades de la naturaleza y su medida . Oxford: Clarendon Press.
+- Cartwright, N. 1994. Fundamentalismo vs. el mosaico de leyes. Actas de la Sociedad Aristotélica XCIV: 279–292.
+- Cartwright, N. 1999. El mundo moteado: un estudio de los límites de la ciencia . Cambridge: Cambridge University Press.
+- Cedrini, M. y M. Novarese. 2014. Economía, Altruismo e Dono. En Il dono. Valore di legame e valori umani. Un dialogo interdisciplinare , ed. G. Faldetta y S. Labate, 169–189. Palermo: Di Girolamo.
+- Chakravartty, A. 2007. Una metafísica para el realismo científico: Conocer lo inobservable . Cambridge: Cambridge University Press.
+- Chang, Ha Joon. 2011. 23 cosas que no te dijeron sobre el capitalismo . Nueva York: Penguin. Edición de reimpresión.
+- Choi, YB 1990. La visión de Smith sobre la naturaleza humana: un problema en la interpretación de la riqueza de las naciones y la teoría de los sentimientos morales. Review of Social Economy 48 (3): 288–302.
+- Churchland, P. 1986. Neurophilosophy: Hacia una ciencia unificada de la mente y el cerebro . Cambridge: MIT Press.
+- Clément, A. 2003. La influencia de la medicina en la economía política en el siglo XVII. History of Economics Review 38 (verano): 1–22.
+- Colander, D. 2000. La muerte de la economía neoclásica. Revista de Historia del Pensamiento Económico 22 (2): 127- 143.
+- Colander, D. 2011. Cómo se equivocaron los economistas: un relato matizado. Revisión crítica: Revista de política y sociedad 23 (1–2): 1–27.
+- Colander, D. 2016. Creando economistas humildes. En el manual de Oxford de ética económica profesional , ed. G. DeMartino y DN McCloskey, 737–749. Oxford: Prensa de la Universidad de Oxford.
+- Colander, D., M. Goldberg, A. Haas, K. Juselius, A. Kirman, T. Lux y B. Sloth. 2009. La crisis financiera y el fracaso sistemático de la economía académica. Revisión crítica: Revista de política y sociedad 21 (2–3): 249–267.
+- Coy, P. 2009. ¿De qué sirven los economistas de todos modos? Bloomberg Businessweek , 16 de abril.
+- Crane, T. 2013. Los objetos del pensamiento . Oxford: Prensa de la Universidad de Oxford.
+- Crespo, RF 2013. Filosofía de la economía. Un enfoque aristotélico . Dordrecht: Springer.
+- Crocker, DA 1992. Funcionamiento y capacidad: los fundamentos de la ética de desarrollo de Sen y Nussbaum. Teoría política 20: 584–612.
+- Dale, G. 2016. Karl Polanyi. Una vida a la izquierda . Nueva York: Columbia University Press.
+- Davidson, P. 2010. Riesgo e incertidumbre. En La crisis económica y el estado de la economía , ed. Robert Skidelsky y Christian W. Wigström, 13- 29. Nueva York: Palgrave Macmillan.
+- Davis, J. 2006. La importancia normativa del individuo en economía. En Ethics and the market: Insights from social economics , ed. Betsy Jane Clary, Wilfred Dolfsma y Deborah M. Figart, 69–83. Londres / Nueva York: Routledge.
+- Davis, JB 2001. Identidad de agente en economía. En La cosmovisión económica , ed. U. Mäki, 114- 131. Cambridge: Cambridge University Press.
+- Davis, JB. 2003a. El individuo en economía. Conferencia inaugural. Facultad de Economía y Econometría . Ámsterdam: Amsterdam University Press.
+- Davis, JB. 2003b. La teoría del individuo en economía . Londres / Nueva York: Routledge.
+- Davis, JB. 2006. Estrategias de identidad social en la economía reciente. Revista de metodología económica 13: 371–390.
+- Davis, JB. 2008a. La concepción del individuo socialmente arraigado. En El compañero de Elgar a la economía social , ed. JB Davis y W. Dolfsma. Cheltenham: Edward Elgar.
+- Davis, JB. 2008b. El giro de la economía reciente y el regreso de la ortodoxia. Cambridge Journal of Economics 32: 349–366.
+- Davis, JB. 2011. Individuos e identidad en economía . Cambridge: Cambridge University Press.
+- Davis, JB. 2016a. Economía, neuroeconomía y el problema de la identidad. Schmollers Jahrbuch 136: 15–32.
+- Davis, JB. 2016b. La batalla naval de mañana: La identidad de los agentes económicos reflexivos . Documento presentado en la 3ª conferencia internacional de filosofía económica, Aix- en- Provence, del 15 al 16 de junio.
+- de Condorcet, M. 1804. Esquisse d'un Tableau Historique . París: Henrichs.
+- De Grauwe, P. 2012. Conferencias sobre macroeconomía del comportamiento . Princeton: Prensa de la Universidad de Princeton.
+- De- Juan, O. y F. Monsalve. 2006. Comportamiento gobernado moralmente: la contribución desatendida del escolasticismo. Revista europea de historia del pensamiento económico 13 (1): 99- 112.
+- Deaton A. y N. Cartwright. 2017. Comprensión y comprensión de los ensayos controlados aleatorios. Documento de trabajo NBER, no 22595.
+- Decock, W. 2013. Teólogos y derecho contractual: La transformación moral de la Comuna de Ius . Editores Martinus Nijhoff.
+- DeMartino, GF 2011a. El juramento del economista: sobre la necesidad y el contenido de la ética económica profesional . Oxford: Prensa de la Universidad de Oxford.
+- DeMartino, GF y D. McCloskey. 2015. El manual de Oxford de ética económica profesional . Oxford: Prensa de la Universidad de Oxford.
+- DeMartino, GF. 2011b. Sobre la necesidad de una ética económica profesional. The Economist , 6 de enero.
+- Deneulin, S. 2002. Perfeccionismo, paternalismo y liberalismo en el enfoque de capacidad de Sen y Nussbaum. Review of Political Economy 14: 497–518.
+- Dequech, D. 2007. Economía neoclásica, dominante, ortodoxa y heterodoxa. Revista de economía poskeynesiana 30 (2): 279- 302.
+- Dewey, J. 1915 / 1967–1990. La lógica de los juicios de la práctica. En Las obras completas de John Dewey, 1882–1953 , ed. Jo Ann Boydston 14–97. Carbondale / Edwardsville: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 1922 / 1967–1990. Naturaleza y conducta humana . En Las obras completas de John Dewey, 1882–1953 14, ed. Jo Ann Boydston. Carbondale / Edwardsville: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 1925/1985. Las últimas obras de John Dewey, 1925- 1953. Volumen 1: Experiencia y naturaleza . Carbondale, IL: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 1927 / 1967–1990 . El público y sus problemas. En Las obras completas de John Dewey, 1882–1953 , ed. Jo Ann Boydston. Carbondale / Edwardsville: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 1928 / 1967–1990. Filosofías de la libertad. En Las obras completas de John Dewey, 1882–1953 , ed. Jo Ann Boydston, 92- 114. Carbondale / Edwardsville: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 1929 / 1967–1990. La búsqueda de la certeza. Un estudio de la relación entre conocimiento y acción. En Las obras completas de John Dewey, 1882–1953 , ed. Jo Ann Boydston. Carbondale / Edwardsville: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 1930. Individualismo viejo y nuevo . Nueva York: Minton, Balch & Company.
+- Dewey, J. 1935 / 1981–1990. El futuro del liberalismo. En Las obras completas de John Dewey, 1882- 195 , ed. JoAnn Boydston, Carbondale: Universidad del Sur de Illinois.
+- Dewey, J. 1935. Liberalismo y acción social . Nueva York: GP Putnam.
+- Dewey, J. 1938 / 1967–1990. Lógica. La teoría de la indagación. En Las obras completas de John Dewey, 1882–1953 , ed. Jo Ann Boydston. Carbondale / Edwardsville: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 1938/1985. Las últimas obras de John Dewey, 1925- 1953. Vol. 12: Lógica: la teoría de la investigación . Carbondale, IL: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 1939. Libertad y cultura . Nueva York: GP Putnam.
+- Dewey, J. 1947 / 1967–1990 . Liberando al científico social. En Las obras completas de John Dewey, 1882–1953 , ed. Jo Ann Boydston, 224- 238. Carbondale / Edwardsville: Prensa de la Universidad del Sur de Illinois.
+- Dewey, J. 2008. Las obras intermedias, 1899- 1924. Volumen 10, 1916- 1917 . Londres / Amsterdam: Feffer & Simons.
+- Dewey, J. 2008. Los trabajos posteriores 1925- 1953 . Vol. 3, 1927- 1928. Carbondale: Universidad del Sur de Illinois.
+- Dow, SC 2013. Códigos de ética para economistas: una visión pluralista. Pensamiento económico: historia, filosofía y metodología 2 (1): 20–29.
+- Dworkin, R. 1986. Law's empire . Cambridge: Prensa de la Universidad de Harvard.
+- Dworkin, R. 2011. Justicia para erizos . Cambridge: Prensa de la Universidad de Harvard.
+- Easterly, W. 2006. La carga del hombre blanco: por qué los esfuerzos de Occidente para ayudar al resto han hecho tanto mal y tan poco bien . Oxford: Prensa de la Universidad de Oxford.
+- Elliot, L. 2010. Rescatando a la economía de su propia crisis. The Guardian , 8 de noviembre.
+- Elmendorf, JJ 1892. Elementos de teología moral . Nueva York: James Pott & Company.
+- Elżanowska, H. 2012. Międzypokoleniowa transmisja wartości w rodzinie. Studia z Psychologii w KUL 18: 97- 114.
+- Enders, W. y GA Hoover. 2004. ¿De quién es la línea? Plagio en economía. Revista de literatura económica 42 (2): 487–493.
+- Evans, CS 2002. Preservar a la persona: una mirada a las ciencias humanas . Vancouver: Regent College Publishing.
+- Fanelli, D. 2009. ¿Cuántos científicos fabrican y falsifican investigaciones? Una revisión sistemática y un metanálisis de los datos de la encuesta. PLoS One 4 (5): 1–11.
+- Fay, B. y JD Moon. 1977. ¿Cómo sería una filosofía adecuada de las ciencias sociales? Filosofía de las Ciencias Sociales 7 (3): 209- 227.
+- Fine, B. 2009. ¿La economía de la identidad y la identidad de la economía? Cambridge Journal of Economics 33: 175- 191.
+- Finley, MI 1970. Aristóteles y análisis económico. Pasado y presente 47: 3–25.
+- Finnis, J. 2011. Derecho natural y derechos naturales . Oxford: Prensa de la Universidad de Oxford.
+- Fleischacker, S. 2004. Sobre la riqueza de las naciones de Adam Smith: un compañero filosófico . Princeton: Prensa de la Universidad de Princeton.
+- Frankfurt, H. 1982. La importancia de lo que nos importa. Synthese 53 (2): 257–272.
+- Friedman, M. 1953 [1984]. La metodología de la economía positiva. En La filosofía de la economía: una antología , ed. DM Hausman, 180- 213. Cambridge / Nueva York / Sydney: Cambridge University Press.
+- Friedman, Milton. 1962. Capitalismo y libertad . Chicago: Prensa de la Universidad de Chicago.
+- Fudulu, P. 2014a. Una perspectiva evolutiva anti- entrópica sobre la formación de fines humanos . https://www.researchgate.net/publication/260835541_An_Anti- Entropic_Evolutionary_Perspective_on_Human_Ends_Formation . Consultado el 4 de junio de 2018.
+- Fudulu, P. 2014b. La decodificación económica del fenómeno de la cultura a partir de la formación antientrópica y jerarquización de fines humanos: Definición, formación e impacto . https://www.researchgate.net/publication/260835377_The_Economic_Decoding_of_the_Phenomenon_of_Culture_Based_on_the_Antientropic_Formation_and_Ranking_of_Human_Ends_Definition_Formation_and_Impact . Consultado el 4 de junio de 2018.
+- Fullbrook, E. 2004. Una guía de lo que está mal en la economía . Londres: Anthem Press.
+- Gasper, D. 1997. Enfoque de capacidad de Sen y ética de capacidades de Nussbaum. Journal of International Development 9: 281–302.
+- Gasper, D. 2002. ¿Es el enfoque de capacidades de Sen una base adecuada para considerar el desarrollo humano? Review of Political Economy 14: 435–461.
+- Geach, PT 1967. Identidad intencional. Journal of Philosophy 64: 627–632.
+- Geertz, C. 1973. Juego profundo: Notas sobre las peleas de gallos de los Balineses. En La interpretación de las culturas: ensayos seleccionados . Nueva York: Basic Books.
+- Giere, RN 2000. Teorías. En Compañero de la filosofía de la ciencia , ed. WH Newton- Smith, 515- 524. Oxford: Editores de Blackwell.
+- Gigerenzer, G. 2008. Por qué funcionan las heurísticas. Perspectivas de la ciencia psicológica 3 (1): 20- 29.
+- Gilbert, M. 1989. Sobre hechos sociales . Princeton: Prensa de la Universidad de Princeton.
+- Giovanola, B. 2005. Persona y riqueza humana: Bien y bienestar en el enfoque de capacidades y más allá. Revista de Economía Social LXIII: 249–267.
+- Giri, AK 2000. Repensar el bienestar humano: un diálogo con Amartya Sen. Journal of International Development 12: 1003–1018.
+- Gorazda, M. 2017a. Granice naturalizacji prawa . Warszawa: Wolters Kluwer.
+- Gorazda, M. 2017b. La ley como medio para alcanzar un fin. Indecidibilidad del problema final. Revista de derecho polaco 3 (1): 68–84.
+- Götz, N. 2015. 'Economía moral': Su historia conceptual y perspectivas analíticas. Revista de ética global 11 (2): 147–162. http://www.tandfonline.com/doi/full/10.1080/17449626.2015.1054556 . Consultado el 6 de noviembre de 2017.
+- Griffin, J. 1993. Modelo contra el gusto. En Comparaciones interpersonales de bienestar , ed. J. Elster y J. Roemer, 45–69. Cambridge: Cambridge University Press.
+- Griswold, CL 1999. Adam Smith y las virtudes de la iluminación . Cambridge: Cambridge University Press.
+- Groenewegen, PD 2001. Los médicos y la economía política: Seis estudios sobre el trabajo de los médicos economistas . Londres / Nueva York: Routledge.
+- Gulack, R. 2012. https://ethicalfocus.org/the- land- of- now- or- how- time- goes- by/ . Consultado el 13 de septiembre de 2019.
+- Hahn, F. 1980. Teoría del equilibrio general. El interés público 36: 123- 138.
+- Hahn, F. 1995. Un ensayo crítico sobre la teoría macroeconómica moderna . Cambridge: MIT Press.
+- Hands, DW 2001. Reflexión sin reglas: Metodología económica y teoría de la ciencia contemporánea . Cambridge: Cambridge University Press.
+- Hanley, RP 2009. Adam Smith y el carácter de la virtud . Cambridge: Cambridge University Press.
+- Hardt, Ł. 2017. Economía sin leyes. Hacia una nueva filosofía de la economía . Cham: Palgrave Macmillan.
+- Hargreaves- Heap, SP 2013. ¿Cuál es el significado de economía del comportamiento? Cambridge Journal of Economics 37 (5): 985–1000.
+- Harsanyi, J. 1977. La moralidad y la teoría del comportamiento racional. Investigación social 44: 623–656.
+- Hart, HLA 1994. El concepto de derecho . Oxford: Prensa de la Universidad de Oxford.
+- Harvey, JT 2012. Cómo contribuyeron los economistas a la crisis financiera. Forbes, 2 de junio.
+- Hausman, D. 2011. Preferencia, valor, elección y bienestar . Cambridge: Cambridge University Press.
+- Hausman, DM 2012. Preferencia, valor, elección y bienestar . Cambridge: Cambridge University Press.
+- Hausman, DM, M. Gorazda y T. Kwarciński. 2017. O przydatności ekonomii, celach polityki publicznej i znaczeniu filozofii ekonomii. Zarządzanie Publiczne 42 (4): 102–109.
+- Hayek, F. 1945. El uso del conocimiento en la sociedad. The American Economic Review 35 (4): 519–530.
+- Hayek, FA 1983. Derecho, legislación y libertad. Tomo I. Reglas y orden . Chicago: Prensa de la Universidad de Chicago.
+- Hazlett, A. 2012. Actitudes epistémicas de orden superior y humildad intelectual. Episteme 9 (3): 205–223.
+- Heath, Joseph. 2014. La moral, la competencia y la empresa: el enfoque de las fallas del mercado en la ética empresarial . Nueva York: Oxford University Press.
+- Hendry, RF 2008. Química. En El compañero de Routledge a la filosofía de la ciencia , ed. S. Psillos y M. Curd. Londres: Routledge.
+- Henrich, J. 2004. Demografía y evolución cultural: cómo los procesos culturales adaptativos pueden producir pérdidas desadaptativas: el caso de Tasmania. Antigüedad americana 69 (2): 197–214.
+- Henrich, J. 2015. El secreto de nuestro éxito: cómo la cultura está impulsando la evolución humana, domesticando nuestra especie y haciéndonos más inteligentes . Princeton: Prensa de la Universidad de Princeton.
+- Henrich, J. y FJ Gil- White. 2001. La evolución del prestigio: la deferencia conferida libremente como mecanismo para potenciar los beneficios de la transmisión cultural. Evolución y comportamiento humano 22 (3): 165- 196.
+- Henrich, J. y R. Boyd. 1998. La evolución de la transmisión conformista y el surgimiento de diferencias entre grupos. Evolución y comportamiento humano 19: 215–242.
+- Herndon, T., Ash, M. y Pollin, R. 2013a. ¿La elevada deuda pública sofoca constantemente el crecimiento económico? Una crítica de Reinhart y Rogoff . Serie de documentos de trabajo PERI: 322.
+- Herndon, T., M. Ash y R. Pollin. 2013b. ¿La elevada deuda pública sofoca constantemente el crecimiento económico? Una crítica de Reinhart y Rogoff. Cambridge Journal of Economics. https://doi.org/10.1093/cje/bet075 . 
+- Hesse, M. 1980. Revoluciones y reconstrucciones en la filosofía de la ciencia . Bloomington / Londres: Indiana University Press.
+- Heyne, P. 2008. En "¿Son los economistas básicamente inmorales?" Y otros ensayos sobre economía, ética y religión de Paul Heyne , ed. G. Brennan y A. Waterman. Indianápolis: Liberty Fund.
+- Hirschman, AO 2013. Las pasiones y los intereses: Argumentos políticos a favor del capitalismo antes de su triunfo . Princeton: Prensa de la Universidad de Princeton.
+- Hodgson, G. 2002. La ceguera institucional en la economía moderna. En el avance de la socioeconomía. Una perspectiva institucionalista , ed. J. Rogers Hollingsworth, Karl H. Müller y Ellen Jane Hollingsworth, 147- 170. Lanham / Oxford: Rowman y Littlefield.
+- Hodgson, GM 1988. Economía e instituciones: un manifiesto para una economía institucional moderna . Cambridge: Polity Press.
+- Hodgson, GM. 2015. Conceptualizando el capitalismo: Instituciones, evolución, futuro . Chicago: Prensa de la Universidad de Chicago.
+- Hogan, B. y L. Marcelle. 2017. La complementariedad de medios y fines: Putnam, pragmatismo y el problema de la racionalidad económica. Posgrado Facultad de Filosofía Revista 38 (2).
+- Hogan, B. y L. Marcelle. 2017. La complementariedad de medios y fines: Putnam, pragmatismo y el problema de la racionalidad económica. Revista de Filosofía de la Facultad de Graduados 38 (2): 401–428.
+- Hohol, M. 2015. Naturalne podstawy normatywności: Hobbes i Hume. En Naturalizm prawniczy. Stanowiska , ed. J. Stelmach, B. Brożek, Ł. Kurek y K. Eliasz, 22–33. Warszawa: Wolters Kluwer.
+- Holland, NJ 2013. Humildad ontológica: Lord Voldemort y los filósofos . Albany: Prensa SUNY.
+- Hollis, M. 1977. Modelos de hombre: Pensamientos filosóficos sobre la acción social . Cambridge: Cambridge University Press.
+- Hoover, GA 2006. Un modelo de plagio de teoría de juegos. Atlantic Economic Journal 34 (4): 449–454.
+- Hoover, GE 1926. El estado actual de la ciencia económica. Fuerzas sociales 5 (1): 57–60.
+- Horst, U., A. Kirman y M. Teschl. 2007. Cambio de identidad: El surgimiento de grupos sociales . GREQAM Groupement de Recherche en Economie Quantitative d'AixMarseille, Document de Travail n 2006‐51.
+- Hume, D. 1740/2000. Un tratado de la naturaleza humana . Oxford: Prensa de la Universidad de Oxford.
+- Hume, D. 1748/2004. Una investigación sobre el entendimiento humano . Nueva York: Publicaciones de Dover.
+- Hume, D. 1758/1993. Ensayos seleccionados . Oxford: Oxford Univeristy Press.
+- Hume, D. 1777/2006. Sobre la inmoralidad del alma. En Ensayos: moral, política y literaria , ed. D. Hume, 597–604. Nueva York: Cosimo Classic.
+- Hume, D. 2000. Un tratado de la naturaleza humana . Oxford: Prensa de la Universidad de Oxford.
+- Husserl, E .. Manuscritos inéditos: AV 21 / 84b.
+- Husserl, E. 1956. Erste Philosophie (1923/4). Erste Teil: Kritische Ideengeschichte [ Primera filosofía (1923/24). Primera parte: La historia crítica de las ideas ], ed. Rudolf Boehm. La Haya: Martinus Nijhoff.
+- Husserl, E. 1966. Analysen zur passiven Synt hesis. Aus Vorlesungs- und Forschungsmanuskripten, 1918- 1926 [ Análisis de síntesis pasiva. De conferencias y manuscritos de investigación, 1918–1926 ], ed. Margot Fleischer. La Haya: Martinus Nijhoff.
+- Husserl, E. 1968. Phänomenologische Psychologie. Vorlesungen Sommersemester. 1925 [Psicología fenomenológica. Conferencias del semestre de verano. 1925], ed. Walter Biemel. La Haya: Martinus Nijhoff.
+- Husserl, E. 1973. Zur Phänomenologie der Intersubjektivität. Texte aus dem Nachlass . Zweiter Teil. 1921- 28 [ Sobre la fenomenología de la intersubjetividad. Textos de la finca . Segunda parte. 1921- 28], ed. Iso Kern. La Haya: Martinus Nijhoff.
+- Husserl, E. 1977. Ideen zu einer reinen Phänomenologie und phänomenologischen Philosophie . Erstes Buch: Allgemeine Einführungin die reine Phänomenologie 1 . Halbband: Text der 1–3. Auflage - Nachdruck [ Ideas pertenecientes a una fenomenología pura ya una filosofía fenomenológica , primer libro: Introducción general a una fenomenología pura . Primera mitad de encuadernación. Texto de las 1–3 ediciones. Reimpresión], ed. Karl Schuhmann. La Haya: Martinus Nijhoff.
+- Husserl, E. 1984. Logische Untersuchungen . Zweiter Teil. Untersuchungen zur Phänomenologie und Theorie der Erkenntnis . En zwei Bänden. [ Investigaciones lógicas . Segunda parte. Investigaciones sobre fenomenología y teoría del conocimiento . En dos volúmenes], ed. Ursula Panzer. La Haya: Martinus Nijhoff.
+- Husserl, E. 2004. Einleitung in die Ethik. Vorlesungen Sommersemester 1920 und 1924 [Introducción a la ética. Conferencias del Sommersemester 1920 y 1924], ed. Henning Peucker. Dordrecht: Kluwer Academic Publishers.
+- Hutchison, TW 1984. Sobre verificación en economía. En La filosofía de la economía: una antología , ed. DM Hausman. Cambridge / Nueva York / Sydney: Cambridge University Press.
+- Joas, H. 1996. La creatividad de la acción . Chicago: Prensa de la Universidad de Chicago.
+- Johnston, I. 1997. Conferencia sobre la ética a Nicómaco de Aristóteles . https://www.oneeyedman.net/school- archive/classes/fulltext/www.mala.bc.ca/~johnstoi/introser/aristot.htm . Consultado el 20 de febrero de 2017.
+- Kahneman, D. 2011/2012. Pensando, rápido y lento . Londres: Penguin Books.
+- Kant, I. 1781/1996. Crítica de la razón pura . Indianápolis: Hackett Classics.
+- Kapp, KW 1949 [1963]. La economía como parte de un sistema de ética aplicada. En Historia del pensamiento económico: un libro de lecturas , ed. KW Kapp. Nueva York: Barnes and Noble.
+- Kapp, KW 2011. En Los fundamentos de la economía institucional , ed. Sebastian Berger y Rolf Steppacher. Londres / Nueva York: Routledge.
+- Karabag, SF y C. Berggren. 2012. Retracción, deshonestidad y plagio: análisis de un tema crucial para la publicación académica y las respuestas inadecuadas de las principales revistas en disciplinas económicas y de gestión. Revista de investigación empresarial y económica aplicada 2 (3): 172- 183.
+- Keyes, R. 2004. La era de la posverdad: deshonestidad y engaño en la vida contemporánea . Nueva York: St. Martin's Press.
+- Keynes, JM 2012. La recopilación de escritos de John Maynard Keynes vol. XlX. Ed. E. Johnson y D. Moggridge. Cambridge: Cambridge University Press.
+- Kirman, A. 2010. Economía compleja: Racionalidad individual y colectiva . Londres / Nueva York: Routledge.
+- Kirman, A. 2010. La crisis económica es una crisis para la teoría económica. Estudios económicos CESifo 56 (4): 498–535.
+- Kirman, A. y M. Teschl. 2004. Sobre el surgimiento de la identidad económica. Revue de philosophie économique 9: 59–86.
+- Kirman, A. y M. Teschl. 2006. Búsqueda de identidad en el espacio de las capacidades. Journal of Economic Methodology 13: 299–325.
+- Klamer, A. 1987. Como si los economistas y su tema fueran racionales. En La retórica de las ciencias humanas: Lenguaje y argumento en la erudición y los asuntos públicos , ed. JS Nelson, A. Megill y DN McCloskey, 163–183. Madison: Prensa de la Universidad de Wisconsin.
+- Knight, FH 2009. La ética de la competencia . Nuevo Brunswick / Londres: Transaction Publishers.
+- Kołakowski, L. 2001. Horror metafísico . Chicago: Prensa de la Universidad de Chicago.
+- Kolodko, GW 2018. ¿Socialismo o capitalismo? Tertium Datur . Ponencia presentada en el taller: Economía comparada y sistemas económicos - El impacto de los pensamientos de János Kornai. 18 de enero de 2018, Budapest. http://www.kornai90.hu/wp- content/uploads/2018/01/KOLODKO_Tertium- Datur_ENG.pdf . Consultado el 11 de abril de 2018.
+- Koslowski, P. 2006. La economía de la felicidad . https://ssrn.com/abstract=945328 o https://doi.org/10.2139/ssrn.945328 . 
+- Kraut, R. 2009. Qué es bueno y por qué. La ética del bienestar . Cambridge, MA: Harvard University Press.
+- Krugman, P. 2009, 6 de septiembre. ¿Cómo se equivocaron tanto los economistas? The New York Times , págs. 36–43.
+- Krugman, P. 2009. ¿Cómo se equivocaron tanto los economistas? The New York Times, 6 de septiembre.
+- Lakatos, Imre. 1970. Falsificación y metodología de programas de investigación científica. En Crítica y crecimiento del conocimiento , ed. Imre Lakatos y Alan Musgrave, 170- 196. Cambridge: Cambridge University Press.
+- Langholm, O. 1992. Economía en las escuelas medievales: Riqueza, intercambio, valor, dinero y usura según la tradición teológica de París, 1200- 1350 . Leiden / Nueva York / Colonia: EJ Brill.
+- Langholm, O. 1998. El legado de la escolástica en el pensamiento económico: antecedentes de elección y poder . Cambridge: Cambridge University Press.
+- Langlois, RN 1998. Seguimiento de reglas, experiencia y racionalidad: ¿una nueva economía del comportamiento? En Racionalidad en la economía: perspectiva alternativa , ed. K. Dennis, 55–78. Nueva York: Kluwer Academic Publishers.
+- Lawson, T. 1997. Economía y realidad . Londres: Routledge.
+- Lawson, T. 2005. La naturaleza de la economía institucional. Revista de economía evolutiva e institucional 2 (1): 7- 20.
+- Lawson, T. 2006. La naturaleza de la economía heterodoxa. Cambridge Journal of Economics 30: 483–505.
+- Lawson, T. 2009. La crisis económica actual: su naturaleza y el curso de la economía académica. Cambridge Journal of Economics 33 (4): 759–777.
+- Lawson, T. 2014. Una concepción de la ontología social. En Ontología social y economía moderna , ed. S. Pratten, 19–52. Oxon: Routledge.
+- Lawson, T. 2015. Ensayos sobre la naturaleza y el estado de la economía moderna . Abingdon: Routledge.
+- Lenox, J. 2009. El enterrador de Dios: ¿La ciencia ha enterrado a Dios? Oxford: Libro del león.
+- Leontief, W. 1971. Supuestos teóricos y hechos no observados. American Economic Review 61: 1–7.
+- Levy, DM 1995. El espectador parcial en la riqueza de las naciones: un utilitarismo robusto. Revista europea de historia del pensamiento económico 2 (2): 299–326.
+- Lewis, CI 1939. Significado y acción. The Journal of Philosophy 36 (21): 572–576.
+- Lewis, D. 1986. Sobre la pluralidad de mundos . Oxford: Blackwell.
+- Lipsey, Richard G. y Kelvin Lancaster. 1956. La teoría general del segundo mejor. Review of Economic Studies 24 (1): 11–32.
+- Livet, P. 2004. La pluralité cohérente des notions de l'identité personelle. Revue de Philosophie Economique 9: 29–57.
+- Livet, P. 2006. Identidades, capacidades y revisiones. Revista de metodología económica 13: 327–348.
+- Locke, J. 1975. Un ensayo sobre la comprensión humana . ed. Peter H. Nidditch. Oxford: Clarendon Press. Se hacen referencias al Libro, Capítulo y Sección, por ejemplo (II, 26, §13).
+- Longman, P. 2004. La cuna vacía: cómo la caída de las tasas de natalidad amenaza la prosperidad mundial y qué hacer al respecto . Nueva York: Basic Books.
+- Machlup, F. 1955. El problema de la verificación en economía. Southern Economic Journal 22 (1): 1–21.
+- Machlup, F. 1984. Sobre la verificación indirecta [Replica a un ultra empirista reacio]. En La filosofía de la economía: una antología , ed. DM Hausman. Cambridge / Nueva York / Sydney: Cambridge University Press.
+- Mackie, J. 1974. El cemento del universo . Oxford: Prensa de la Universidad de Oxford.
+- Mäki, U. 1992. Sobre el método de aislamiento en economía. En Idealización IV: Inteligibilidad en la ciencia , Poznań estudia filosofía de las ciencias y las humanidades 26, ed. Dilworth, 317–351. Ámsterdam: Rodopi.
+- Mankiw, NG 2011. Principios de economía . Mason: Cengage Learning.
+- Marshall, A. 1890. Principios de economía . 1ª ed. Londres: Macmillan.
+- Marshall, A. 1890. Principios de economía . Londres: Macmillan.
+- Marshall, A. 1898. Distribución e intercambio. Economic Journal 8 (29): 37–59.
+- Marshall, A. 1920/2013. Principios de economía . 8ª ed. Londres: Palgrave Macmillan.
+- Marx, K. 1859. Zur Kritik der Politischen Ökonomie . Berlín: F. Duncker.
+- Maslow, AH 1943. Una teoría de la motivación humana. Psychological Review 50: 370–396. http://psychclassics.yorku.ca/Maslow/motivation.htm . Consultado el 4 de agosto de 2017.
+- Massey, GJ 1991. Analiticidad de puerta trasera. En Experimentos de pensamiento en ciencia y filosofía , ed. T. Horowitz y GJ Massey, 285- 296. Salvaje: Roman y Littlefield.
+- Mayor, N. 1836/1951. Un esbozo de la ciencia de la economía política . Nueva York: Augustus M. Kelly.
+- Maziarz, M. 2017. La controversia Reinhart- Rogoff como ejemplo del fenómeno del 'resultado contrario emergente'. Revista de metodología económica 24 (3): 1–13.
+- McCloskey, D. 2006. Humildad y verdad. Revisión Teológica Anglicana 88: 181–196.
+- McPherson, M. 1983. Quiere formación, moralidad y algunos aspectos interpretativos de la investigación económica. En Social Science as Moral Inquiry , ed. Norma Hann, Robert Bellah, Paul Rabinow y William Sulivan, 96–124. Nueva York: Columbia University Press.
+- Meikle, S. 1955. El pensamiento económico de Aristóteles . Oxford: Prensa de la Universidad de Oxford.
+- Merton, T. 1956. Pensamientos en soledad . Nueva York: Farrar, Straus y Ciroux.
+- Mill, JS 1836/2008. Sobre la definición y método de economía política. En La filosofía de la economía , ed. D. Hausman, 41–58. Cambridge: Cambridge University Press.
+- Mill, JS 1844/2006. Ensayos sobre algunas cuestiones pendientes de la economía política (Ensayo V: "Sobre la definición de economía política; y sobre el método de investigación que le es propio"). En Obras completas de John Stuart Mill , vol. 4. Indianápolis: Liberty Fund.
+- Mill, JS. 1843. Un sistema de lógica. Razonativo e inductivo . Londres: John W. Parker.
+- Mills, CW 2000. La imaginación sociológica . Epílogo de Tod Gitlin. Oxford / Nueva York: Oxford University Press.
+- Milonakis, D. y B. Fine. 2009. De la economía política a la economía . Abingdon: Routledge.
+- Mirowski, P. 1986. Formalismo matemático y explicación económica. En La reconstrucción de la teoría económica , ed. Philip Mirowski, 179- 240. Boston: Editorial Kluwer- Nijhoff.
+- Mirowski, P. 1989. Más calor que luz. La economía como física social: la física como economía de la naturaleza . Cambridge: Cambridge University Press.
+- Mirowski, P. 2002. Sueños de máquina: la economía se convierte en una ciencia cyborg . Cambridge: Cambridge University Press.
+- Mitchell, M. 1999. Introducción a los algoritmos genéticos . Kindle ed. Cambridge / Londres: MIT Press.
+- Mitchell, WC 1950a. El análisis cuantitativo en teoría económica. En El arte atrasado de gastar dinero y otros ensayos , ed. Wesley Mitchell, 72–82. Nueva York: Augustus M. Kelly Inc.
+- Mitchell, WC. 1950b. Las perspectivas de la economía. En El arte atrasado de gastar dinero y otros ensayos , ed. Wesley Mitchell, 342–386. Nueva York: Augustus M. Kelly INC.
+- Mongine, P. 2002. ¿Hay avances en economía normativa? En ¿Hay progreso en economía , ed. S. Boehm, C. Gehrke, HD Kurz y R. Sturn, 145- 170. Northhampton: Edward Elgar Publishing.
+- Montes, L. 2008. Adam Smith como un estoico ecléctico. Adam Smith Repaso 4: 30–56.
+- Moore, GE 2004. Principia Ethica . Mineola / Nueva York: Publicaciones de Dover.
+- Musk, E. 2017. Haciendo de los humanos una especie multi- planetaria. Nuevo Espacio 5 (2). http://online.liebertpub.com/doi/pdfplus/10.1089/space.2017.29009.emu . Consultado el 12 de septiembre de 2017.
+- Myrdal, G. 1958. Medios y fines en economía política. En Valor en teoría social. Una selección de ensayos sobre metodología , ed. Paul Streeten, 206- 231. Londres: Routledge y Kegan Paul.
+- Nagel, T. 1986. La vista desde la nada . Oxford: Prensa de la Universidad de Oxford.
+- Necker, S. 2014. Mal comportamiento científico en economía. Research Policy 43 (10): 1747–1759.
+- Necker, S. 2016. ¿Por qué los científicos hacen trampa? Perspectivas de la economía del comportamiento. Review of Social Economy 74 (1): 98–108.
+- Newson, L. y PJ Richerson. 2009. ¿Por qué la gente se vuelve moderna? Una explicación darwiniana. Examen de población y desarrollo 1 (35).
+- North, DC 1991. Instituciones, cambio institucional y desempeño económico . St Louis: Universidad de Washington.
+- Nussbaum, MC 1999. La ética de la virtud: ¿una categoría engañosa? The Journal of Ethics 3: 163- 201.
+- Nussbaum, MC y A. Sen, eds. 1993. La calidad de vida . Oxford: Clarendon Press.
+- Oakley, A. 1994. Hombre económico clásico: agencia humana y metodología en la economía política de Adam Smith y JS Mill . Cheltenham: Edward Elgar Publishing.
+- O'Driscoll, GP 1980. Justicia, eficiencia y análisis económico del derecho: un comentario sobre fritos. The Journal of Legal Studies 9 (2): 355–366.
+- Ortega y Gasset, J. 1930/1993. La revuelta de las masas . Nueva York / Londres: WW Norton & Company.
+- Otteson, JR 2002. El mercado de la vida de Adam Smith . Cambridge: Cambridge University Press.
+- Palmer, CT y LB Steadman. 1997. El parentesco humano como una estrategia para dejar descendientes: una solución a un rompecabezas evolutivo. Revista de sistemas sociales y evolutivos 20: 39–51.
+- Parfit, D. 1984. Razones y personas . Oxford: Prensa de la Universidad de Oxford.
+- Peirce, C. y J. Buchler. 1955. Escritos filosóficos de Peirce . Nueva York: Publicaciones de Dover.
+- Peirce, CS 1877/1982. La fijación de la fe. Popular Science Monthly . Reimpreso en Pragmatismo: Los escritos clásicos , ed. HS Thayer, 61–78. Indianápolis: Hackett.
+- Perkins, J. 2004. Confesiones de un asesino a sueldo económico . Ebury Press.
+- Persky, J. 1995. Retrospectives. La etología del Homo Economicus . Journal of Economic Perspectives 9 (2): 221- 231.
+- Pettit, Philip. 2008. Hecho con palabras . Princeton: Prensa de la Universidad de Princeton.
+- Pigden, C. 1991. Naturalism. En Companion to ethics , ed. P. Singer, 421–431. Oxford: Blackwell Publishing.
+- Pigou, AC 1920. La economía del bienestar . Londres: Mcmillan.
+- Pigou, AC 1932. La economía del bienestar . Londres: Macmillan.
+- Piketty, T. 2014. Capital en el siglo XXI . Cambridge, MA: Belknap, Harvard University Press.
+- Pinker, S. 2011. Los mejores ángeles de nuestra naturaleza: por qué ha disminuido la violencia . Nueva York: Viking Books.
+- Pizano, D. 2009. Conversaciones con grandes economistas . Nueva York: Jorge Pinto Books.
+- Polanyi, K. 1977. Subsistencia del hombre . Nueva York / San Francisco / Londres: Académico.
+- Polanyi, K. 2011. La gran transformación. Los orígenes políticos y económicos de nuestro tiempo . Boston: Beacon Press.
+- Polkinghorne, JC 1990. Una teología natural revivida. En ciencia y religión. Un mundo: perspectivas cambiantes sobre la realidad , ed. J. Fennema e I. Paul, 87–98. Dordrecht: Kluwer.
+- Popper, K. 1978. La selección natural y el surgimiento de la mente. Dialectica 32 (3/4): 339–355.
+- Popper, KR 1935 [2002]. La lógica del descubrimiento científico . Londres / Nueva York: Routledge.
+- Popper, KR 2013. La sociedad abierta y sus enemigos . Princeton: Prensa de la Universidad de Princeton.
+- Posner, RA 2014. Análisis económico del derecho . 9ª ed. Nueva York: Wolters Kluwer.
+- Potts, J. 2008. Evolución económica, dinámica de identidad y ciencia cultural. Revista de Ciencias Culturales 1 (2). http://doi.org/10.5334/csci.15 ; https://culturalscience.org/articles/10.5334/csci.15/ .
+- Price, M. 2011. La controversia de la teoría de la selección de grupos. http://www.scq.ubc.ca/the- controversy- of- group- selection- theory/ . Consultado el 27 de Ferb de 2012.
+- Putnam, H. 1980. Razón, verdad e historia . Cambridge, MA: Harvard Press.
+- Putnam, H. 2002. El colapso de la dicotomía hecho- valor y otros ensayos . Cambridge, MA / Londres: Harvard University Press.
+- Putnam, H. 2003. Por la ética y la economía sin las dicotomías. Revisión de Economía Política 15 (3).
+- Putnam, H. 2004. El colapso de la dicotomía hecho / valor y otros ensayos . Cambridge, MA: Universidad de Harvard.
+- Putnam, H. 2016. Naturalismo, realismo y normatividad . Cambridge, MA: Harvard University Press.
+- Putnam, H. y V. Walsh. 2012. El fin de la economía libre de valores . Londres: Routledge.
+- Qizilbash, M. 1996. Capacidades, bienestar y desarrollo humano: una encuesta. The Journal of Development Studies 33: 143–162.
+- Quine, WVO 1979. Sobre la naturaleza de los valores morales. Investigación crítica 1 (3): 471–480.
+- Raphael, DD y Macfie, AL 1984. Introducción a la teoría de los sentimientos morales , por Adam Smith, 1- 52.
+- Rasmussen, DC, ed. 2018. Adam Smith y la muerte de David Hume: La carta a Strahan y textos relacionados . Nueva York: Lexington Books.
+- Reid, Th. 2002. Ensayos sobre los poderes intelectuales del hombre , ed. Derek R. Brookes. University Park: Prensa de la Universidad Estatal de Pensilvania.
+- Reinhart, CM y K. Rogoff. 2010b. Crecimiento en tiempos de endeudamiento. American Economic Review: Papers and Proceedings 100: 573–578.
+- Reinhart, CM y Rogoff, K. 2013. Debate sobre la deuda, el crecimiento y la austeridad. New York Times , 25 de abril.
+- Reinhart, CM, Rogoff, K. 2010a. Crecimiento en tiempos de endeudamiento. Documento de debate NBER núm. 15639.
+- Reisman, George. 1998. Capitalismo: tratado de economía . Danvers: Libros de Jameson.
+- Resnik, DB 2015. ¿Qué es la ética en la investigación y por qué es importante? Instituto Nacional de Ciencias de la Salud Ambiental. https://www.niehs.nih.gov/research/resources/bioethics/whatis/ . Consultado en marzo de 2019.
+- Richardson, HS 1994. Razonamiento práctico sobre fines finales . Cambridge: Cambridge University Press.
+- Richerson, P. y col. 2016. La selección de grupos culturales juega un papel esencial en la explicación de la cooperación humana: un bosquejo de la evidencia. Ciencias del comportamiento y del cerebro 39: 1–68.
+- Richerson, PJ y R. Boyd. 2005. No solo por genes. Cómo la cultura transformó la evolución humana . Kindle ed. Chicago: Prensa de la Universidad de Chicago.
+- Rivera- Batiz, LA y P. Romer. 1991. Integración económica y crecimiento endógeno. Quarterly Journal of Economics 106 (2): 531–555.
+- Robbins, L. 1927. El señor Hawtrey y el alcance de la economía. Economica : 172- 178.
+- Robbins, L. 1932. Un ensayo sobre la naturaleza y el significado de la ciencia económica . Londres: Macmillan and Company.
+- Robbins, L. 1932. Un ensayo sobre la naturaleza y el significado de la ciencia económica . Londres: Macmillan & Co.
+- Robbins, L. 1932. Un ensayo sobre la naturaleza y el significado de la ciencia económica . Londres: Macmillan and Co.
+- Roberts, RC y WJ Wood. 2003. Humildad y bienes epistémicos. En Virtud intelectual: perspectivas desde la ética y la epistemología , ed. M. de Paul y L. Zagzebski, 257–280. Oxford: Prensa de la Universidad de Oxford.
+- Robinson, J. 1962. Filosofía económica . Londres: CA Watts.
+- Rodrik, D. 2015. Reglas económicas: Los aciertos y errores de la ciencia lúgubre . Oxford: Prensa de la Universidad de Oxford.
+- Romer, P. 1990. Cambio técnico endógeno. Revista de Economía Política 98 (5): S71 – S102.
+- Romer, P. 2016a. El problema de la macroeconomía. El economista estadounidense. https://ccl.yale.edu/sites/default/files/files/The%20Trouble%20with%20Macroeconomics.pdf . Consultado en marzo de 2019.
+- Romer, P. 2016b. Mathiness en la teoría del crecimiento económico. American Economic Review 105 (5): 89–93.
+- Róna, P. 2017. ¿Por qué la economía es una ciencia moral? En Economía como ciencia moral , ed. Peter Rona y László Zsolnai, 3- 9. Cham: Springer.
+- Róna, P. 2018a. Ontología y economía. En Objetos económicos y los objetos de la economía , ed. P. Róna y L. Zsolnai, 5- 8. Cham: Springer.
+- Róna, P. 2018b. Posdata sobre ontología y economía. En Objetos económicos y los objetos de la economía , ed. P. Róna y L. Zsolnai, 185- 192. Cham: Springer.
+- Rorty, AO 1980. Ensayos sobre la ética de Aristóteles . Berkeley / Los Ángeles / Londres: University of California Press.
+- Rorty, R. 1995. ¿Es la verdad el objetivo de la investigación: Davidson vs. Wright? The Philosophical Quarterly 45 (180): 281–300.
+- Rorty, R., H. Putnam, J. Conant y G. Helfrich. 2004. ¿Qué es el pragmatismo? Piense en 3 (8).
+- Ross, D. 2005. Teoría económica y ciencia cognitiva: Microexplicación . Cambridge, MA / Londres: MIT Press.
+- Ross, D. 2012. El agente económico: no humano pero importante. En Filosofía de la economía , ed. U. Mäki, 691–736. Amsterdam: Elsevier.
+- Rothschild, E. 2001. Economic sentiments . Oxford: Prensa de la Universidad de Oxford.
+- Russell, B. 1919. Introducción a la filosofía matemática . Londres: George Allen y Unwin.
+- Sacerdote, G. 2005. Hacia el no ser . Oxford: Clarendon Press.
+- Samuelson, PA 1947. Fundamentos del análisis económico . Cambridge: Prensa de la Universidad de Harvard.
+- San Juan Pablo II, 1997/2006. Pielgrzymki do Polski. Przemówienia i homilie [Peregrinaciones a Polonia: discursos y homilías] . Cracovia: Znak.
+- Santo Tomás de Aquino. 1270/1947. Summa Theologicae . Trans. Los padres de la provincia dominicana inglesa. Edición Benzinger Bros.
+- Sayer, A. 2000. Economía moral y economía política . En Studies in Political Economy 61, primavera de 2000. http://spe.library.utoronto.ca/index.php/spe/article/viewFile/6751/3748 . Consultado el 20 de diciembre de 2017.
+- Schabas, M. 2008. Experimentos de pensamiento monetario de Hume. Estudios de historia y filosofía de la ciencia 39: 161- 169.
+- Schenck, D. 1976. Replanteo del debate sobre ética de la virtud / ética del deber. Revista de ética religiosa 4: 269- 286.
+- Schick, F. 1986. Corredores de apuestas holandeses y bombas de dinero. The Journal of Philosophy 83: 112- 119.
+- Schumpeter, J. 1934/2017. La teoría del desarrollo económico: una investigación sobre las ganancias, el capital, el crédito, los intereses y el ciclo económico . Nueva York: Routledge.
+- Schumpeter, J. 1954/2006. Historia del análisis económico . Londres: Routledge.
+- Schumpeter, JA 1954. Doctrina y método económicos. Un bosquejo histórico . Nueva York: Oxford University Press.
+- Schumpeter, JA 1954. Historia del análisis económico . Nueva York: Psychology Press.
+- Searle, J. 2005. Qué es una institución. Revista de economía institucional 1: 1): 1–1): 22.
+- Searle, JR 1964. Cómo derivar "debería" de "es". The Philosophical Review 73 (1): 43–58.
+- Searle, JR 1983. Intencionalidad . Cambridge: Cambridge University Press.
+- Sedláček, T. 2012. A jó és a rossz közgazdaságtana. A Gilgames- eposztól a Wall Streetig (Economía del bien y del mal. La búsqueda de significado económico desde Gilgamesh hasta Wall Street). Budapest: Editorial HVG. (Edición húngara).
+- Sen, A. 1977. Tontos racionales: una crítica de los fundamentos conductuales de la teoría económica. Filosofía y Asuntos Públicos 6: 317–344.
+- Sen, A. 1977. Tontos racionales: una crítica de los fundamentos conductuales de la economía. Filosofía y Asuntos Públicos 6: 317–344.
+- Sen, A. 1980. Utilidad plural. Actas de la Sociedad Aristotélica, Nueva Serie 81: 193–215.
+- Sen, A. 1986. Predicción y teoría económica. Actas de la Royal Society de Londres. Serie A, Ciencias Físicas y Matemáticas 407: 3–23.
+- Sen, A. 1988. Sobre ética y economía . Oxford: Blackwell Publishing.
+- Sen, A. 1999. Razón anterior a la identidad . Nueva Delhi: Oxford University Press.
+- Sen, A. 2002. Racionalidad y libertad . Cambridge, MA: The Belknap Press de Harvard University Press.
+- Sen, A. 2002. Racionalidad y libertad . Cambridge, MA: The Belknap Press de Harvard University Press.
+- Shoemaker, S. y R. Swinburne. 1984. Identidad personal . Oxford: Blackwell.
+- Sievers, AM 1949. ¿Se ha derrumbado el capitalismo de mercado? Nueva York: Columbia University Press.
+- Simon, H. 1957. Un modelo conductual de elección racional. En Modelos de hombre, social y racional: ensayos matemáticos sobre el comportamiento humano racional en un entorno social . Nueva York: Wiley.
+- Simon, HA 1955. Un modelo conductual de elección racional. The Quarterly Journal of Economics 69 (1): 99- 118.
+- Simon, HA. 1997. Comportamiento administrativo: un estudio de los procesos de toma de decisiones en las organizaciones administrativas . 4ª ed. Nueva York: Free Press.
+- Simpson, Brian P. 2005. ¡Los mercados no fallan! Lanham: Libros de Lexington.
+- Simpson, Brian P. 2010. Dos teorías del monopolio y la competencia: implicaciones y aplicaciones. Revista de economía y negocios aplicados 11 (2): 139- 151.
+- Smart, JCC 1961. Libre albedrío, alabanza y culpa. Mind 70 (279): 291- 306.
+- Smith, A. 1759. La teoría de los sentimientos morales y sobre los orígenes de las lenguas , ed. D. Stewart. https://oll.libertyfund.org/titles/smith- the- theory- of- moral- sentiments- and- on- the- origins- of- languages- stewart- ed
+- Smith, A. 1759. La teoría de los sentimientos morales. Versión en línea: http://www.earlymoderntexts.com/assets/pdfs/smith1759.pdf . Consultado el 14 de julio de 2017.
+- Smith, A. 1759/2013. La teoría de los sentimientos morales . Londres: Empire Books.
+- Smith, A. 1776. Una investigación sobre la naturaleza y las causas de la riqueza de las naciones. https://www.ibiblio.org/ml/libri/s/SmithA_WealthNations_p.pdf . Consultado el 21 de diciembre de 2017.
+- Smith, A. 1776/1904. Una investigación sobre la naturaleza y las causas de la riqueza de las naciones , ed. Edwin Cannan. Londres: Methuen & Co., Ltd
+- Smith, A. 1795/1980. Ensayos sobre temas filosóficos, edición de Glasgow de las obras y correspondencia de Adam Smith . Oxford: Prensa de la Universidad de Oxford.
+- Smith, A. 1976. Teoría de los sentimientos morales . La edición de Glasgow de las obras y correspondencia de Adam Smith, vol. 1. Oxford: Oxford University Press.
+- Smith, A. 1978. Conferencias sobre jurisprudencia . Oxford: Prensa de la Universidad de Oxford.
+- Smith, V. 2008. Racionalidad en economía: formas constructivistas y ecológicas . Nueva York: Cambridge University Press.
+- Spencer, H. 1864. Principios de biología . Londres: Williams y Norgate.
+- Stiglitz, J., Abernathy, N., Hersh A., Holmberg S., Konczal M. 2016. Reescribiendo las reglas de la economía estadounidense. Una agenda para el crecimiento y la prosperidad compartida . Nueva York / Londres: WW Norton & Company.
+- Storr, VH 2013. El espectador imparcial y las enseñanzas morales de los mercados. En The Oxford handbook of freedom , ed. David Schmidtz y Carmen E. Pavel, 456–474. Oxford: Prensa de la Universidad de Oxford.
+- Sumner, LW 1998. ¿Es la virtud su propia recompensa? Filosofía y políticas sociales 15 (1): 18–36.
+- Sunder, S. 2002. El mercado como artefacto: Eficiencia agregada de los comerciantes de inteligencia cero. En Modelos de un hombre: Ensayos en memoria de Herbert A. Simon . Cambridge, MA: MIT Press.
+- Szulczewski, G. 2015. Krytyka 'etyki sympatii i' problema A. Smitha w swietle lektury Teorii uczuc moralnych. Prakseologia 157: 79.
+- Tamanaha, BZ 2006. La ley como medio para alcanzar un fin. Amenaza al estado de derecho . Cambridge: Prensa de la Universidad de Cambidge.
+- Taylor, C. 1985. Animales que se interpretan a sí mismos. En agencia humana y lenguaje. Artículos filosóficos: Volumen 1 , 45–76. Cambridge: Cambridge University Press.
+- Taylor, cap. 1971. Interpretación y ciencia del hombre. Revisión de metafísica 25 (1): 3–51.
+- Teschl, M. 2010. Economía de la identidad: ¿Hacia un agente económico más realista? Revisión de la economía de la identidad: cómo nuestras identidades dan forma a nuestro trabajo, salarios y bienestar . Revista de metodología económica 17: 445–452.
+- Teschl, M. 2011. Revisión de Individuos e identidad en economía de John B. Davis . Revista Erasmus de Filosofía y Economía 4: 74–82. http://ejpe.org/pdf/4- 2- br- 2.pdf .
+- The Economist . 2016. Sí, te mentiría. 10 de septiembre.
+- Thoron, S. 2016. La moralidad más allá de las preferencias sociales: la simpatía de Smith, la neurociencia social y la naturaleza de la conciencia social. Psicología y Economía. Perspectiva histórica 6 (2): 235–264.
+- Tillman, R. 1998. John Dewey como usuario y crítico de las ideas de Thorstein Veblen. Revista de Historia del Pensamiento Económico 20 (2): 145- 160.
+- Tomasello, M. 1999. Los orígenes culturales de la cognición humana . Londres: Harvard University Press.
+- Tóth, G. 2016. Gazdasággép (Máquina económica). Budapest: L'Harmattan Kiadó.
+- Tucker, AW 1983. Las matemáticas de Tucker: una muestra. Un dilema de dos personas: el dilema del prisionero. Revista universitaria de dos años de matemáticas 14 (3): 228- 232.
+- Valdés, JG 1995. Economistas de Pinochet: The Chicago School of Economics en Chile . Cambridge: Cambridge University Press.
+- Vanberg, V. 2008. Sobre la economía de las preferencias morales. Revista estadounidense de economía y sociología 67 (4): 606–628.
+- Varian, H. 2010. Microeconomía intermedia. Un enfoque moderno . Nueva York: WW Norton & Company.
+- Varoufakis, Y. 1998. Fundamentos de la economía: un compañero para principiantes . Londres: Routledge.
+- Veatch, HB 1962. Hombre racional: una interpretación moderna de la ética aristotélica . Indianápolis: Liberty Fund.
+- Veblen, T. 1909. Las limitaciones de la utilidad marginal. Revista de Economía Política 17 (9): 620–636.
+- Viner, J. 1927. Adam smith y laissez faire. Revista de Economía Política 35 (2): 198- 232.
+- Vogel, SK 2018. Marketcraft. Cómo los gobiernos hacen que funcionen los mercados . Oxford: Prensa de la Universidad de Oxford.
+- von Mises, L. 1949. La acción humana. Un tratado de economía . Chicago: Libros contemporáneos, Inc.
+- von Neumann, J. y O. Morgenstern. 1944. Teoría de juegos y comportamiento económico . Princeton: Prensa de la Universidad de Princeton.
+- Walras, L. 1874 [2010]. Elementos de economía pura. Londres.
+- Walras, L. 1874/1984. Elementos de economía pura: O la teoría de la riqueza social . Filadelfia: Ediciones Orion.
+- Walras, L. 1954. Elementos de economía pura . Trans. W. Jaffé. Londres: George Allen y Unwin.
+- Walsh, V. 2007. Amartya Sen sobre racionalidad y libertad. Ciencia y Sociedad 71 (1): 59–83.
+- Wang, X. 2015. Sobre capital moral . Berlín / Heidelberg: Yilin Press, Ltd / Springer.
+- Ward, B. 1972. ¿Qué hay de malo en la economía ? Nueva York: Basic Books.
+- Weber, M. 1949. La metodología de las ciencias sociales . Nueva York: The Free Press.
+- Weber, M. 1978. Economía y sociedad . Berkeley: Prensa de la Universidad de California.
+- Westbrook, RB 1991. John Dewey y la democracia estadounidense . Ithaca, Nueva York: Cornell University Press.
+- Whitcomb, D., H. Battaly, J. Baehr y D. Howard- Snyder. 2015. Humildad intelectual: apropiarse de nuestras limitaciones. Filosofía e investigación fenomenológica 94 (3): 509–539.
+- Whitford, J. 2002. El pragmatismo y el dualismo insostenible de medios y fines: por qué la teoría de la elección racional no merece un privilegio paradigmático. Teoría y sociedad 31 (3): 325–363.
+- Whittington, KE 2013. Originalismo: una introducción crítica. Fordham Law Review 82 (2): 375–409.
+- Wible, JR 2016. La mala conducta científica y la realización responsable de la investigación en ciencia y economía. Review of Social Economy 74 (1): 7–32. https://doi.org/10.1080/00346764.2016.1135598 . 
+- Wiggins, D. 1980. Deliberación y razón práctica. En Ensayos sobre la ética de Aristóteles , ed. A. Rorty. Berkeley / Los Ángeles / Londres: University of California Press.
+- Wigner, E. 1960. La eficiencia irrazonable de las matemáticas en las ciencias naturales. Comunicaciones en matemáticas puras y aplicadas 13: 1–14.
+- Williams, B. 1970. El yo y el futuro. Revisión filosófica 79: 161–180.
+- Williams, N. 2009. Racionalidad colectiva. Biología actual 19 (15). https://doi.org/10.1016/j.cub.2009.07.045 . 
+- Wojtyla, K. 1979. La persona que actúa. Analecta Husserliana, el anuario de investigaciones fenomenológicas . Vol. X. Dordrecht: D. Reidel Publ. Co.
+- Wołosiuk, B. 2010. Wpływ preferencji wartości rodziców na aksjologiczną orientację dzieci. En Wartości w rodzinie: ciągłość i zmiana , ed. W. Muszyński, 64–74. Toruń: Wydawnictwo Adam Marszałek.
+- Worrall, J. 1989. Por qué tanto Popper como Watkins no logran resolver el problema de la inducción. En Libertad y racionalidad , ed. F. d'Agostino e IC Jarvie, 257- 296. Dordrecht: Kluwer.
+- Yalcintas, A. 2016. Dependencia de la trayectoria intelectual: por qué los economistas no rechazan las teorías refutadas . Londres: Routledge.
+- Yalcintas, A. e I.Ş. Selçuk. 2016. Investigación en educación ética en economía. Review of Social Economy 74 (1): 53–74.
+- Yalcintas, A. y JR Wible. 2016. Conducta científica inapropiada y ética de la investigación en economía: una introducción. Revisión de la economía social 74 (1): 1–6.
+- Young, T. 2016. La verdad sobre la 'política posterior a la verdad'. The Spectator, 16 de julio.
+- Załuski, W. 2009. Teoría evolutiva y filosofía jurídica . Cheltenham / Northampton: Edward Elgar Publishing.
+- Załuski, W. 2012. O teorii kulturowego doboru grupowego na przykładzie analizy rozwoju chrześcijaństwa w cesarstwie rzymskim. Logos i Ethos 32.
+- Załuski, W. 2014. Teoría de juegos en jurisprudencia . Cracovia: Copernicus Center Press.
+- Załuski, W. 2018. Ley y mal: la perspectiva evolutiva . Cheltenham / Northampton: Edward Elgar Publishing.
+- Zaratiegui, M. Jesús. 1999. El imperialismo de la economía sobre la ética. Journal of Markets & Morality 2 (2): 208–219.
+- Ziliak, ST y DN McCloskey. 1996. Error estándar de regresión. Revista de literatura económica 34 (1): 97- 114.
+- Ziliak, ST y DN McCloskey. 2004. El tamaño importa: el error estándar de regresión en American Economic Review. Revista de Socioeconomía 33 (5): 527–546.
+- Ziliak, ST y DN McCloskey. 2008. El culto a la significación estadística: cómo el error estándar nos cuesta trabajos, justicia y vidas . Ann Arbor: Prensa de la Universidad de Michigan.
+- Zimbardo, P. y J. Boyd. 2009. La paradoja del tiempo: La nueva psicología del tiempo que cambiará tu vida . Nueva York: Free Press.
+
+## Fuentes en línea {-} 
+
+- Al-Greene, B. 2013. Elon Musk en SXSW: 'Me gustaría morir en Marte, pero no en el impacto' . Mashable , 10 de marzo . Http://mashable.com/2013/03/10/elon- musk- sxsw- 2013- mars/#Kj893vyC8qqC . Consultado el 1 de agosto de 2017.
+- Balkam, S. 2015. ¿Qué pasará cuando Internet de las cosas se vuelva artificialmente inteligente? The Guardian , 20 de febrero. Https://www.theguardian.com/technology/2015/feb/20/internet- of- things- artificially- intelligent- stephen- hawking- spike- jonze . Consultado el 8 de octubre de 2017.
+- Caughill, P. 2017. Los investigadores han vinculado un cerebro humano a Internet por primera vez en la historia . Futurism , 14 de septiembre. Https://futurism.com/researchers- have- linked- a- human- brain- to- the- internet- for- the- first- time- ever/ . Consultado el 8 de octubre de 2017.
+- Coppola, F. 2017. El FMI da una cautelosa bienvenida a la renta básica universal . Forbes , 15 de octubre. Https://www.forbes.com/sites/francescoppola/2017/10/15/the- imf- gives- a- cautious- welcome- to- universal- basic- income/#51e5c37c2b64 . Consultado el 22 de octubre de 2017.
+- Delvaux, M. 2015. Proyecto de informe con recomendaciones a la Comisión de Normas de Derecho Civil sobre Robótica (2015/2103 (INL)). Comisión de Asuntos Jurídicos. http://www.europarl.europa.eu/sides/getDoc.do?pubRef=- //EP//NONSGML%2BCOMPARL%2BPE- 582.443%2B01%2BDOC%2BPDF%2BV0//EN . Consultado el 27 de marzo de 2018.
+- El economista. 2015. La gran cadena de estar seguro de las cosas. 31 de octubre. Https://www.economist.com/news/briefing/21677228- technology- behind- bitcoin- lets- people- who- do- not- know- or- trust- each- other- build- dependable . Consultado el 31 de marzo de 2018.
+- Gray, R. 2017. Tratar el cáncer, detener la violencia… Cómo nos protege la IA. BBC Future , 15 de septiembre. Http://www.bbc.com/future/story/20170914- spotting- cancer- stopping- shootings- how- ai- protects- us . Consultado el 8 de octubre de 2017.
+- Larsen, C. 2015. Hacia una Internet de valor: una entrevista con Chris Larsen, director ejecutivo de Ripple Labs . https://www.mckinsey.com/~/media/McKinsey/Industries/Financial%20Services/Our%20Insights/Toward%20an%20internet%20of%20value/Toward%20an%20internet%20of%20value.ashx . Consultado el 28 de marzo de 2018.
+- Manthorpe, R. 2017. Harri Valpola sueña con una Internet de hermosas mentes de inteligencia artificial. Wired Magazine , 23 de septiembre. Http://www.wired.co.uk/article/harri- valpola- curious- ai- artificial- intelligence- third- wave . Consultado el 8 de octubre de 2017.
+- Pavlus, J. 2017. Deja de fingir que realmente sabes qué es la IA y lee esto en su lugar. Quartz , 6 de septiembre. Https://qz.com/1067123/stop- pretending- you- really- know- what- ai- is- and- read- this- instead/ . Consultado el 12 de septiembre de 2017.
+- Sadowski, J. 2016. Por qué Silicon Valley está adoptando la renta básica universal . The Guardian , 22 de junio. Https://www.theguardian.com/technology/2016/jun/22/silicon- valley- universal- basic- income- y- combinator . Consultado el 3 de septiembre de 2017.
+- Sandmo, A. 2014. Adam Smith y la economía moderna . Escuela de Economía de Noruega. https://brage.bibsys.no/xmlui/bitstream/handle/11250/194583/SAM1314.pdf?sequence=1 . Consultado el 25 de diciembre de 2017.
+- Sicklick, J. 2017. La inteligencia artificial rehacerá la industria inmobiliaria: para mejor . LinkedIn Pulse , 14 de septiembre. Https://www.linkedin.com/pulse/artificial- intelligence- remake- real- estate- industry- better- sicklick/ . Consultado el 8 de octubre de 2017.
+- Enciclopedia de Filosofía de Stanford. 2013. Filosofía moral y política de Adam Smith . https://plato.stanford.edu/entries/smith- moral- political/ . Consultado el 21 de diciembre de 2017.
+- Wright, R. 1999. Nonzero - La lógica del destino humano . http://www.nonzero.org/toc.htm . Consultado el 29 de julio de 2017.
+- Zuckerberg, M. 2017. Construyendo una comunidad global. Nota de Facebook , 16 de febrero https://www.facebook.com/zuck/posts/10154544292806634 . Consultado el 9 de julio de 2017.
+
+## Bases de datos {-}
+
+- Banco Mundial: PIB per cápita (2010, US $ a precios actuales). https://data.worldbank.org/indicator/NY.GDP.PCAP.CD . Consultado el 29 de octubre de 2017.
+- Banco Mundial: índice GINI (2010, estimación del Banco Mundial). https://data.worldbank.org/indicator/SI.POV.GINI Consultado el 29 de octubre de 2017.
+ 
+## Otras fuentes {-}
+
+- Servicio Mundial de la BBC. 2017. Adam Smith: Padre del capitalismo . The Forum (programa de radio) , 22 de noviembre. Http://www.bbc.co.uk/programmes/w3csvsfb . Consultado el 21 de diciembre de 2017.
+- MAK - Österreichisches Museum für angwandte Kunst - Museo de Artes Aplicadas. 2017. Lágrimas artificiales - Singularidad y humanidad - Una especulación . Folleto de exposición .
+- Google Académico
+- Mohácsi, Z. 2018. Blockchain: ¿A digitális bizalom alapja? / Okosszerződések (Blockchain - ¿La moneda de la confianza digital? / Contratos inteligentes) 22 de marzo. Serie de presentaciones del Centro de Excelencia en Cibereconomía de la Escuela de Negocios de Budapest - Universidad de Ciencias Aplicadas.
+- Google Académico

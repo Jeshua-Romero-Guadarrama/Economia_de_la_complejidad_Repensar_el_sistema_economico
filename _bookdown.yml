@@ -1,5 +1,5 @@
+book_filename: "Economia_de_la_complejidad_repensar_el_sistema_economico"
 new_session: yes
-book_filename: "Repensar_el_sistema_economico"
 output_dir: docs
 delete_merged_file: true
 rmd_files: ["index.Rmd",
